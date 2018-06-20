@@ -3,6 +3,6 @@
 
 
 
-abc.com   
-npr.org   
+https://abcnews.go.com/     
+https://www.npr.org/     
 
