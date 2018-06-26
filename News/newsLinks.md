@@ -21,7 +21,7 @@ https://www.apnews.com/
 https://www.afp.com/en    
     
 https://foreignpolicy.com/    
-https://www.economist.com/sections/united-    
+https://www.economist.com/sections/united-states   
     
 ## Right 
 http://thehill.com/news    
