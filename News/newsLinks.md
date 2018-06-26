@@ -1,8 +1,13 @@
 
 
 
-AZ  news   
-http://www.azfamily.com/   
+## AZ  news   
+https://moneyradio1510.com/program-schedule.php  
+http://www.azfamily.com/  
+http://ktar.com/arizona-news/  
+https://www.abc15.com/   
+https://www.azcentral.com/local/    
+
 
 
 ## Neutral 
