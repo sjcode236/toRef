@@ -6,7 +6,7 @@ ph   7.2  - 7.8
 total alkalinity   80 - 120 ppm   
 phosphates   below  100ppm  
 muriatic acid  ->  to reduce ph   
-====================================================================================  
+====        ==================================================================================  
 
 Borates / Boric Acid   30 - 50 ppm    
 ==LaMotte Borate test strips are the best ones I have come across.    
