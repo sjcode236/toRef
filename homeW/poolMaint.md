@@ -1,11 +1,11 @@
 
 
-conditioner /  cyanuric acid /  Stabilizer  30 - 99 ppm 
-free  chlorine   1 - 4 ppm
-ph   7.2  - 7.8
-total alkalinity   80 - 120 ppm
-phosphates   below  100ppm
-muriatic acid  ->  to reduce ph 
+conditioner /  cyanuric acid /  Stabilizer  30 - 99 ppm    
+free  chlorine   1 - 4 ppm    
+ph   7.2  - 7.8   
+total alkalinity   80 - 120 ppm   
+phosphates   below  100ppm  
+muriatic acid  ->  to reduce ph   
 **************
 
 Borates / Boric Acid   30 - 50 ppm    
