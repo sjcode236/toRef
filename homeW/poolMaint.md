@@ -15,7 +15,7 @@ Borates / Boric Acid   30 - 50 ppm
 https://www.troublefreepool.com/threads/90257-Borates-Why-and-How    
 https://www.troublefreepool.com/threads/4655-So-you-want-to-add-borates-to-your-pool-Why-and-How    
 
-## PoolMath**   
+**PoolMath**   
 https://www.troublefreepool.com/calc.html   
 
 https://www.poolcalculator.com/chemistry.html    
