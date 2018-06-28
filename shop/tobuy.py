@@ -1,1 +1,0 @@
-quick notes to buy 
