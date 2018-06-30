@@ -37,7 +37,7 @@ https://www.facebook.com/kennedi.slade
 
 Sister's cleaning service , Tolleson, AZ
 https://www.facebook.com/martha.ydavid
-  602 668 6362  rafaela 
+  602 668 6362  rafaela  (amiga)
 asked 90 for 9668 peoria home
 
 rosa Evelia  https://www.facebook.com/Hadassa777
@@ -45,9 +45,13 @@ rosa Evelia  https://www.facebook.com/Hadassa777
 asked 80 for 9668 82nd ln ,
 two people  , amiga , live near I-10  
   
-  
+Exceptional House Cleaning
+Adina Hampton   https://www.facebook.com/adinainaz81
+glendale az  ,  
+$85  
+
 Move Out Cleaning  $139
-Candice Murray
+Candice Murray   480 331 5234  
 https://www.facebook.com/candice.murray.3133
 pics show  getting very clean 
 
