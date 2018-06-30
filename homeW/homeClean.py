@@ -22,14 +22,32 @@ https://www.facebook.com/raul.serpa
 20cent/sqft  tile ,  
 3 rooms 45  carpet
 
+Carpet cleaning $15
+Samuel Sierra 
+https://www.facebook.com/samuel.sierra.7547
+51 ave &   indian schoo rd 
 
 https://www.facebook.com/candice.murray.3133
   her son & husb doing carpet & tile   480 331 5234 
 
 
+Tile&grout cleaning floors , studio  $99 , good photos 
+Pedro Morales https://www.facebook.com/pedro.morales.547727
+6024342747
+
+TILE AND GROUT CLEANING
+Gerardo Rodriguez  ;  https://www.facebook.com/gerardo.rodriguez.395891 
+602  388 2801 
+Litchfield Park, Arizona
+$25/area
+
+Adriano Freiberg  602 535 6519
+https://www.facebook.com/profile.php?id=100010685982487
 
 
-===================================================================================
+
+
+=====home cleaning==============================================================================
 home cleaning  
 Irma  and Abel , avondale ,  480 677 5251
 
@@ -55,10 +73,11 @@ https://www.facebook.com/candice.murray.3133
 pics show  getting very clean 
 80 for 9668 n 82nd lane 
 
-
-Kennedi Inez Slade   (home clean)
-https://www.facebook.com/kennedi.slade
-602-290-9011
+Spotless House Cleaning
+Marjorie Barrera  480 819 6503 
+https://www.facebook.com/marjorie.ann.3192
+asked $50 for 9668 peroia   
+43 st & thomas 
 
 
 Orianna Moxaa Lopez  (only spanish )
