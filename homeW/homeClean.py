@@ -8,16 +8,69 @@ carpet & tilet clearning  9.per room, tile .25/sqft
 Carpet& tile  cleaning Jason , will give package price for 500  sqft , degrease and pressure cleaning
 4803716313
 
-home cleaning  
-
-Irma  and Abel , avondale ,  480 677 5251
-
-Kennedi Inez Slade
-https://www.facebook.com/kennedi.slade
-602-290-9011
-
 chemtech floor cleaning (tile & carpet )
 623 312 9405 
 5rooms  $100  for carepet  and Tile $25-50  per area
+
+Carpet steam clean 10/room 
+Chris Cisneros   602 547 7664
+https://www.facebook.com/CISNEROS2420
+  
+
+tile and carpet cleaning  602 647 3222 
+https://www.facebook.com/raul.serpa
+20cent/sqft  tile ,  
+3 rooms 45  carpet
+
+
+
+
+
+
+===================================================================================
+home cleaning  
+Irma  and Abel , avondale ,  480 677 5251
+
+Kennedi Inez Slade   (home clean)
+https://www.facebook.com/kennedi.slade
+602-290-9011
+
+Sister's cleaning service , Tolleson, AZ
+https://www.facebook.com/martha.ydavid
+
+rosa Evelia  https://www.facebook.com/Hadassa777
+480 498 1863
+asked 80 for 9668 82nd ln ,
+two people  , amiga , live near I-10  
+  
+  
+Move Out Cleaning  $139
+Candice Murray
+https://www.facebook.com/candice.murray.3133
+pics show  getting very clean 
+
+Orianna Moxaa Lopez  (only spanish )
+www.facebook.com/moxa.rivera.50/   , in phoenix 
+602 397 4779
+
+
+
+=====================================================
+   
+  
+  
+Yard clean ups ; glendale 
+https://www.facebook.com/glen.cuevas.98
+
+  
+  
+  
+  Clean Fill dirt plus delivery  $130
+  Mike's excavating   ; https://www.facebook.com/michael.ciummo
+  
+  
+  
+
+  
 
 
