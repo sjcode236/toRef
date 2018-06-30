@@ -23,6 +23,8 @@ https://www.facebook.com/raul.serpa
 3 rooms 45  carpet
 
 
+https://www.facebook.com/candice.murray.3133
+  her son & husb doing carpet & tile   480 331 5234 
 
 
 
@@ -31,9 +33,6 @@ https://www.facebook.com/raul.serpa
 home cleaning  
 Irma  and Abel , avondale ,  480 677 5251
 
-Kennedi Inez Slade   (home clean)
-https://www.facebook.com/kennedi.slade
-602-290-9011
  
 Sister's cleaning service , Tolleson, AZ
 https://www.facebook.com/martha.ydavid
@@ -51,13 +50,21 @@ glendale az  ,
 $85  
 
 Move Out Cleaning  $139
-Candice Murray   480 331 5234  
+Candice Murray   480 331 5234  , 35 ave & olive ave
 https://www.facebook.com/candice.murray.3133
 pics show  getting very clean 
+80 for 9668 n 82nd lane 
+
+
+Kennedi Inez Slade   (home clean)
+https://www.facebook.com/kennedi.slade
+602-290-9011
+
 
 Orianna Moxaa Lopez  (only spanish )
 www.facebook.com/moxa.rivera.50/   , in phoenix 
 602 397 4779
+
 
 
 
