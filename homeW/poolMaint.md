@@ -41,3 +41,18 @@ sodium hydrogen carbonate   pH 8.2 For raising total alkalinity Prevents pH chan
 **BioGuard Optimizer Plus**   
 Ingredients
 Sodium Tetraborate Pentahydrate: 100%    (borates )
+
+================================================================================================
+
+Air bleed filter  25021-0004  
+air bleed tube   25021 - 0003  
+  
+== ORing  35505-1428  (2-1/4  inch length )
+          35504-1429  (2-1/4  inch width)
+         
+== Sta-Rite swimquip  
+    
+https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/   
+ClearChoice Replacement for Sta-Rite S7M120 System 3 Pool Filter Inner & Outer Modular Media Cartridge Set
+   
+  
