@@ -43,16 +43,17 @@ Ingredients
 Sodium Tetraborate Pentahydrate: 100%    (borates )
 
 ================================================================================================
-
+ Sta-Rite System 3  parts 
 Air bleed filter  25021-0004  
 air bleed tube   25021 - 0003  
+http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003   
   
-== ORing  35505-1428  (2-1/4  inch length )
-          35504-1429  (2-1/4  inch width)
+== ORing  35505-1428  (2-1/4  inch length)      
+          35504-1429  (2-1/4  inch width)   
          
-== Sta-Rite swimquip  
+== Sta-Rite swimquip  lights       
     
-https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/   
+https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/    
 ClearChoice Replacement for Sta-Rite S7M120 System 3 Pool Filter Inner & Outer Modular Media Cartridge Set
    
  Sta-Rite System 3 Ss Sand Filter Parts           
