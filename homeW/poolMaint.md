@@ -45,7 +45,7 @@ Sodium Tetraborate Pentahydrate: 100%    (borates )
 =====================================================================     
  Sta-Rite System 3  parts    
 Air bleed filter  25021-0004     
-air bleed tube   25021 - 0003   
+air bleed tube   25021-0003   
 http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003   
   
 == ORing  35505-1428  (2-1/4  inch length)      
