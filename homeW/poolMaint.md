@@ -6,7 +6,7 @@ ph   7.2  - 7.8
 total alkalinity   80 - 120 ppm   
 phosphates   below  100ppm  
 muriatic acid  ->  to reduce ph   
-====-========================================================================  
+====-===========================================================  
 
 Borates / Boric Acid   30 - 50 ppm    
 ==LaMotte Borate test strips are the best ones I have come across.    
@@ -42,10 +42,10 @@ sodium hydrogen carbonate   pH 8.2 For raising total alkalinity Prevents pH chan
 Ingredients
 Sodium Tetraborate Pentahydrate: 100%    (borates )
 
-================================================================================================
- Sta-Rite System 3  parts 
-Air bleed filter  25021-0004  
-air bleed tube   25021 - 0003  
+=====================================================================     
+ Sta-Rite System 3  parts    
+Air bleed filter  25021-0004     
+air bleed tube   25021 - 0003   
 http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003   
   
 == ORing  35505-1428  (2-1/4  inch length)      
