@@ -16,7 +16,7 @@ https://www.facebook.com/luisa.gomez.319
 CARPET TILE SALES AND INSTALLATION       
 https://www.facebook.com/marketplace/item/397530434073041/          
 https://www.facebook.com/profile.php?id=100014223184362     
-Carmen Diaz  ;  Diaz Flooring   
+Carmen Diaz  ;  Diaz Flooring   ; 19ave and baseline  store ; will come and give estimate 
    602 722 8211  
 
  
