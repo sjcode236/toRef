@@ -35,7 +35,8 @@ Mesa
  480 406 0925 ; 480 227  3451   
 
 New Carpet with Pad & Installation   
-3427 West Whitton Avenue. Phoenix 85017. Tell them Ron Harrington sen
+3427 West Whitton Avenue. Phoenix 85017. Tell them 
+Ron Harrington 602 487 5256
 
      
      
