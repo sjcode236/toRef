@@ -11,7 +11,8 @@ https://www.facebook.com/luisa.gomez.319
        
  New CARPET - high quality carpet one room at a time - various colors - various sizes $100 - $200              
   https://www.facebook.com/dianagain          
-  https://www.facebook.com/marketplace/item/207465896640108/         
+  https://www.facebook.com/marketplace/item/207465896640108/   
+ Bud 602-741-6519   
     
 CARPET TILE SALES AND INSTALLATION       
 https://www.facebook.com/marketplace/item/397530434073041/          
@@ -25,7 +26,7 @@ https://www.facebook.com/marketplace/item/371483303339924/
 https://www.facebook.com/marydominguez018    
      Fabian 602.621.7250   
      
-New Carpet with Pad & Installation   
+
 
 Carpet installation    
 https://www.facebook.com/marketplace/item/1600712923349306    
@@ -33,6 +34,8 @@ Eddie Navarro    https://www.facebook.com/eddies.procarpets
 Mesa      
  480 406 0925 ; 480 227  3451   
 
+New Carpet with Pad & Installation   
+3427 West Whitton Avenue. Phoenix 85017. Tell them Ron Harrington sen
 
      
      
