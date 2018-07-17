@@ -46,4 +46,16 @@ HARDWOOD, LAMINATE, LUXURY VINYL PLANK & INSTALLATION ; Scottsdale, AZ
   https://www.facebook.com/FCIofScottsdale/    https://www.facebook.com/Galaxyremodeling    
   https://www.facebook.com/sammysehak     
          
+ https://www.facebook.com/OnPointRenovationsLLC/   
+     https://www.facebook.com/sean.pollard.79 
+ 
+Roberto Barrera  ; 20 year experience 
+https://www.facebook.com/roberto.barrera.58
+      6024883815
+          
+Handyman Velazquez          
+https://www.facebook.com/profile.php?id=100016986635028
+ 20+ years of experience 
+  
+          
          
