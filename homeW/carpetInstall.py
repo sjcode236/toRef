@@ -1,7 +1,7 @@
 
 
 
-I am looking for carpet installer to install carpet  on  a rental home with  4 rooms and stairs ; 
+I am looking for  carpet installer to install carpet  on  a rental home with  4 rooms and stairs ; 
  if you  know please refer  some affordable  carpet installers  / companies 
 
 
@@ -69,4 +69,8 @@ https://www.facebook.com/instalacion.decarpeta.5
      LUIS GARCIA 602 900 7341
 onyx   $16     
 
+Direct Carpet On Floor and Home
+Robert Miller  https://www.facebook.com/profile.php?id=100001070927474
+480-646-2957
+623-748-1526
 
