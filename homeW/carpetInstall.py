@@ -1,7 +1,8 @@
 
 
 
-
+I am looking for carpet installer to install carpet  on  a rental home with  4 rooms and stairs ; 
+ if you  know please refer  some affordable  carpet installers  / companies 
 
 
 Alfombras El Leon         
@@ -56,6 +57,16 @@ https://www.facebook.com/roberto.barrera.58
 Handyman Velazquez          
 https://www.facebook.com/profile.php?id=100016986635028
  20+ years of experience 
-  
           
-         
+ KR Flooring Solutions
+https://www.facebook.com/stefan.brule     Stefan Brule
+https://www.facebook.com/krflooringsolutionsaz/  
+      602) 442-9190
+3422 W Clarendon Ave , Phoenix, Arizona 85017     
+
+
+https://www.facebook.com/instalacion.decarpeta.5
+     LUIS GARCIA 602 900 7341
+onyx   $16     
+
+
