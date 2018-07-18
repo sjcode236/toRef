@@ -47,7 +47,7 @@ https://www.facebook.com/profile.php?id=100010685982487
 
 Miguel Sandoval  ;  ALAN FLOORING CLEANING CARPET SERVICES  602 931 6618 / 602 573-9828 
 https://www.facebook.com/miguel.sandoval.5836711
- good photos 
+ good photos , Tile & Carpet cleaning
 
 
 =====home cleaning==============================================================================
