@@ -49,6 +49,7 @@ HARDWOOD, LAMINATE, LUXURY VINYL PLANK & INSTALLATION ; Scottsdale, AZ
          
  https://www.facebook.com/OnPointRenovationsLLC/   
      https://www.facebook.com/sean.pollard.79 
+ contractors    
  
 Roberto Barrera  ; 20 year experience 
 https://www.facebook.com/roberto.barrera.58
@@ -61,8 +62,8 @@ https://www.facebook.com/meomeo518
 602 446 1431 
 sierra  14.50/yard ;  ony 15.50/yard  with 1/2 inch pad 
 
-Geovanni---- 1 6193987263  
-(robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
+Geovanni---- 1 6193987263    (robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
+He does laminate and sheet vinyl as well
 
  Noe-- 1 602-812-1209
 (robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
@@ -88,3 +89,15 @@ Robert Miller  https://www.facebook.com/profile.php?id=100001070927474
 480-646-2957
 623-748-1526
 
+https://www.carpeturn.com
+ 
+ 
+ ==============================================
+ Garage  doors
+ Sharon Bruntz  https://www.facebook.com/sharon.bruntz
+ Tim Bruntz    602-334-5347 
+  life time warranty on ALL spring jobs. All estimates are free 
+
+  
+  
+ 
