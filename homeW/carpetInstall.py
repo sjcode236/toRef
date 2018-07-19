@@ -54,11 +54,19 @@ Roberto Barrera  ; 20 year experience
 https://www.facebook.com/roberto.barrera.58
 19 ave and broadway   living 
  6024883815
-          
+
+`Juan Ramos Flooring AZ, LLC 
 https://www.facebook.com/jRamosFlooringaz/
 https://www.facebook.com/meomeo518
-Juan Ramos Flooring AZ, LLC
 602 446 1431 
+sierra  14.50/yard ;  ony 15.50/yard  with 1/2 inch pad 
+
+Geovanni---- 1 6193987263  
+(robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
+
+ Noe-- 1 602-812-1209
+(robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
+
 
 Handyman Velazquez          
 https://www.facebook.com/profile.php?id=100016986635028
