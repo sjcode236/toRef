@@ -52,7 +52,9 @@ https://www.facebook.com/miguel.sandoval.5836711
 https://www.facebook.com/profile.php?id=100009084819049
 POWER carpet cleaning  480 430 5269
 
-  
+Rey's Carpet cleaning  602 549 1247
+https://www.facebook.com/linda.orozcochavarria
+use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extraction equipment with 5 jets and 5 suction hoses 
   
 =====home cleaning==============================================================================
 home cleaning  
