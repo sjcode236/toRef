@@ -52,8 +52,14 @@ HARDWOOD, LAMINATE, LUXURY VINYL PLANK & INSTALLATION ; Scottsdale, AZ
  
 Roberto Barrera  ; 20 year experience 
 https://www.facebook.com/roberto.barrera.58
-      6024883815
+19 ave and broadway   living 
+ 6024883815
           
+https://www.facebook.com/jRamosFlooringaz/
+https://www.facebook.com/meomeo518
+Juan Ramos Flooring AZ, LLC
+602 446 1431 
+
 Handyman Velazquez          
 https://www.facebook.com/profile.php?id=100016986635028
  20+ years of experience 
