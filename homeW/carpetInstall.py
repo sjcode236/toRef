@@ -38,10 +38,7 @@ Mesa
 New Carpet with Pad & Installation   
 3427 West Whitton Avenue. Phoenix 85017. Tell them 
 Ron Harrington 602 487 5256
-
-     
-     
-     
+https://www.facebook.com/ron.harringtoncpts  
 
 HARDWOOD, LAMINATE, LUXURY VINYL PLANK & INSTALLATION ; Scottsdale, AZ     
   https://www.facebook.com/FCIofScottsdale/    https://www.facebook.com/Galaxyremodeling    
@@ -60,14 +57,16 @@ https://www.facebook.com/roberto.barrera.58
 https://www.facebook.com/jRamosFlooringaz/
 https://www.facebook.com/meomeo518
 602 446 1431 
-sierra  14.50/yard ;  ony 15.50/yard  with 1/2 inch pad 
+sierra  15/yard ;  onx  15.50/yard  with 1/2 inch pad 
+
 
 Geovanni---- 1 6193987263    (robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
 He does laminate and sheet vinyl as well
+sierra 16.50 ,  onyx 17.50   1.2 inch-pad
 
  Noe-- 1 602-812-1209
 (robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
-
+sierra 17.15
 
 Handyman Velazquez          
 https://www.facebook.com/profile.php?id=100016986635028
