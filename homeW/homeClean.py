@@ -57,6 +57,10 @@ https://www.facebook.com/linda.orozcochavarria
 use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extraction equipment with 5 jets and 5 suction hoses 
   
 =====home cleaning==============================================================================
+
+pumice  stone  to clean toilet 
+
+
 home cleaning  
 Irma  and Abel , avondale ,  480 677 5251
 
@@ -80,7 +84,8 @@ Move Out Cleaning  $139
 Candice Murray   480 331 5234  , 35 ave & olive ave
 https://www.facebook.com/candice.murray.3133
 pics show  getting very clean 
-80 for 9668 n 82nd lane 
+80 for 9668 n 82nd lane  
+not good  work 
 
 Spotless House Cleaning
 Marjorie Barrera  480 819 6503 
@@ -96,30 +101,7 @@ www.facebook.com/moxa.rivera.50/   , in phoenix
 
 
 
-=====================================================
-   
-  
-  
-Yard clean ups ; glendale 
-https://www.facebook.com/glen.cuevas.98
-  
-Tony's VERY AFFORDABLE LANDSCAPER
-602 403 8681
-https://www.facebook.com/profile.php?id=100008285439460
-  https://www.facebook.com/crystal.raygoza.16
-phoenix 
-  
-  Clean Fill dirt plus delivery  $130
-  Mike's excavating   ; https://www.facebook.com/michael.ciummo
 
-
-Julio Gaxiola   623 313 4679    https://www.facebook.com/julio.gaxiola.1466
-backyard cleaning 
-backyard pavers, concrete & tile  
-Kitchen & bathrooms ,  remodeling works , 
-Roof  work 
-live in laveen 
-  
 
   
 
