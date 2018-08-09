@@ -6,6 +6,7 @@
 
 haircut on foodcity plaza , 
 near 59 ave and bethenyhome road .
+623 934  4380
 
 
 LadyJanes Haircut (Kennia )
