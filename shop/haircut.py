@@ -4,8 +4,8 @@
 
 
 
-haircut on foodcity plaza , 
-near 59 ave and bethenyhome road .
+Zoe's Beauty Salon
+near 59 ave and bethenyhome road .;haircut on foodcity plaza , 
 623 934  4380
 
 
