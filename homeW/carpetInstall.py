@@ -58,7 +58,7 @@ https://www.facebook.com/jRamosFlooringaz/
 https://www.facebook.com/meomeo518
 602 446 1431 
 sierra  15/yard ;  onx  15.50/yard  with 1/2 inch pad 
-
+he did at 9668 n 82nd lane;
 
 Geovanni==== 1 6193987263    (robert  Medina gave his number https://www.facebook.com/robert.medina.3766   )
 He does laminate and sheet vinyl as well
