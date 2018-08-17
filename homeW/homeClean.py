@@ -21,6 +21,7 @@ tile and carpet cleaning  602 647 3222
 https://www.facebook.com/raul.serpa
 20cent/sqft  tile ,  
 3 rooms 45  carpet
+9668 n 82nd ln  , cleaned 
 
 Carpet cleaning $15
 Samuel Sierra 
