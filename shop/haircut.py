@@ -14,3 +14,8 @@ LadyJanes Haircut (Kennia )
 glendale , az , 85302 
 peoria and 59 ave ;  10 to 8pm , $15
 623 693 0298
+
+fantastic sams 
+83 ave and unionhills 
+monday specials allday
+
