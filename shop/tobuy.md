@@ -24,9 +24,14 @@ https://www.jcpenney.com/p/rod-desyne-marion-ceiling-curtain-rod/ppr5007337795?p
 
 curtain wire rod ; curtain wire cable rod  in  amazon , ebay , ikea 
 Curtain Wire Rod Set Stainless Steel, Multi-purpose, 16.5' Wire, 2 Mounting Pieces, 24 Clipss by Fasthomegood
- http://a.co/c0NKAFx      
- https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=263899454754    
- https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=202364396625&opts=opick     
+ http://a.co/c0NKAFx     
+ https://www.amazon.com/gp/offer-listing/B00KO3COAW    
+ http://a.co/d/7xaJKRN     
+ https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=263899454754       
+ https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=202364396625&opts=opick          
+ 
+https://www.walmart.com/ip/Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5-Feet-Wire-2-Mounting-Pieces-24-Clips-1-Corner-Pieces-Buyer-receives-16-5-Wire-2-Mounting-Wall/678321843    
+
  
  AmazonBasics Curtain Rod 1" with Cap Finials 
 Link: http://a.co/i14JEq2
