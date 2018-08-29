@@ -11,19 +11,19 @@ https://www.walmart.com/ip/Solar-LED-Lights-20-LED-Wireless-Waterproof-Motion-Se
 
 
 ======= curtain =loft  96" height x  133" len    
-Royal Velvet® Encore Rod-Pocket/Back Tab Curtain Panel 
+Royal Velvet® Encore Rod-Pocket/Back Tab Curtain Panel   
 https://www.jcpenney.com/p/royal-velvet-encore-rod-pocket-back-tab-curtain-panel/pp5003760215?pTmplType=regular&amp;rrec=true&rrplacementtype=product1_rr
 
-Rod Desyne Curtain Rod Ceiling Brackets pair
+Rod Desyne Curtain Rod Ceiling Brackets pair   
 https://www.jcpenney.com/p/rod-desyne-curtain-rod-ceiling-brackets/pp5002300159?pTmplType=regular&catId=SearchResults&searchTerm=curtain+rods&productGridView=medium&N=4294300760%204294946273
-Umbra® Set of 2 Ceiling Mount Brackets
-https://www.jcpenney.com/p/umbra-set-of-2-ceiling-mount-brackets/pp5005310053?pTmplType=regular&amp;rrec=true&rrplacementtype=product1_rr
+Umbra® Set of 2 Ceiling Mount Brackets    
+https://www.jcpenney.com/p/umbra-set-of-2-ceiling-mount-brackets/pp5005310053?pTmplType=regular&amp;rrec=true&rrplacementtype=product1_rr    
 
-Rod Desyne Marion Ceiling Curtain Rod
+Rod Desyne Marion Ceiling Curtain Rod    
 https://www.jcpenney.com/p/rod-desyne-marion-ceiling-curtain-rod/ppr5007337795?pTmplType=regular&amp;rrec=true&rrplacementtype=product2_rr
 
 curtain wire rod ; curtain wire cable rod  in  amazon , ebay , ikea 
-Curtain Wire Rod Set Stainless Steel, Multi-purpose, 16.5' Wire, 2 Mounting Pieces, 24 Clipss by Fasthomegood
+Curtain Wire Rod Set Stainless Steel, Multi-purpose, 16.5' Wire, 2 Mounting Pieces, 24 Clipss by Fasthomegood   
  http://a.co/c0NKAFx     
  https://www.amazon.com/gp/offer-listing/B00KO3COAW    
  http://a.co/d/7xaJKRN     
