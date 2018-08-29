@@ -22,10 +22,11 @@ https://www.jcpenney.com/p/umbra-set-of-2-ceiling-mount-brackets/pp5005310053?pT
 Rod Desyne Marion Ceiling Curtain Rod
 https://www.jcpenney.com/p/rod-desyne-marion-ceiling-curtain-rod/ppr5007337795?pTmplType=regular&amp;rrec=true&rrplacementtype=product2_rr
 
-curtain wire   rod 
-curtain wire cable rod  in  amazon , ebay , ikea 
+curtain wire rod ; curtain wire cable rod  in  amazon , ebay , ikea 
 Curtain Wire Rod Set Stainless Steel, Multi-purpose, 16.5' Wire, 2 Mounting Pieces, 24 Clipss by Fasthomegood
- http://a.co/c0NKAFx
+ http://a.co/c0NKAFx      
+ https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=263899454754    
+ https://www.ebay.com/p/24-Clips-2-Pcs-Mount-Curtain-Wire-Rod-Set-Stainless-Steel-Multi-purpose-16-5/1737875093?iid=202364396625&opts=opick     
  
  AmazonBasics Curtain Rod 1" with Cap Finials 
 Link: http://a.co/i14JEq2
