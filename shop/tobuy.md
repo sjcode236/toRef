@@ -29,4 +29,6 @@ Curtain Wire Rod Set Stainless Steel, Multi-purpose, 16.5' Wire, 2 Mounting Piec
  AmazonBasics Curtain Rod 1" with Cap Finials 
 Link: http://a.co/i14JEq2
 
-19GOSAVE
+A&F Rod Décor - Ceiling Brackets for 3/4 inch Rod - Black
+http://a.co/d/hl5MIea
+
