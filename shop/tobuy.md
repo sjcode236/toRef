@@ -10,7 +10,8 @@ https://www.amazon.com/Tagital-Wireless-Waterproof-Outdoor-Activated/dp/B0765S5Z
 https://www.walmart.com/ip/Solar-LED-Lights-20-LED-Wireless-Waterproof-Motion-Sensor-Outdoor-Light-for-Patio-Deck-Yard-Garden-with-Motion-Activated-Auto-On-Off-4-Pack/992125460   
 
 
-curtain loft  96" height x  133" len 
+======= curtain =loft  96" height x  133" len    
+Royal Velvet® Encore Rod-Pocket/Back Tab Curtain Panel 
 https://www.jcpenney.com/p/royal-velvet-encore-rod-pocket-back-tab-curtain-panel/pp5003760215?pTmplType=regular&amp;rrec=true&rrplacementtype=product1_rr
 
 Rod Desyne Curtain Rod Ceiling Brackets pair
