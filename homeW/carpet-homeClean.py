@@ -64,6 +64,7 @@ use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extract
 "623  256  2521
 20/room  ; new machine & truck"	mexican;  
 
+=>mike 6023187575   5 room $100 {clean 8774hayward , church etc ) ****    
   
 =====home cleaning==============================================================================
 
