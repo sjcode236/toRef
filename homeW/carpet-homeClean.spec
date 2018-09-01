@@ -56,6 +56,14 @@ POWER carpet cleaning  480 430 5269
 Rey's Carpet cleaning  602 549 1247
 https://www.facebook.com/linda.orozcochavarria
 use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extraction equipment with 5 jets and 5 suction hoses 
+
+=== old ones =======
+=>carpet cleaning $15	602 400   7290	
+
+=>artillo	saw in rogers ranch
+"623  256  2521
+20/room  ; new machine & truck"	mexican;  
+
   
 =====home cleaning==============================================================================
 
