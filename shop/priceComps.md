@@ -2,4 +2,7 @@
 
 https://www.google.com/shopping      
 https://express.google.com/   
-s
+  
+slickdeals.net   
+ 
+check the copare shopping 
