@@ -65,7 +65,23 @@ use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extract
 20/room  ; new machine & truck"	mexican;  
 
 =>mike 6023187575   5 room $100 {clean 8774hayward , church etc ) ****    
-  
+=> " awesomecarpets@yahoo.com  623 670 6283 "
+  "rotovac 360  clean  all phx $25/room"	 
+=>KEY CARPET CLEANING
+480.399.7964	"rotovac DHX  ,  all phx
+$25/room"		http://www.keycarpetcleaningtechnology.com/	 
+=>"http://wildwestcarpetcare.com; 480 664 2946"	
+    "ROTOVAC  25/room ; 1 room free"	  
+=>STAIN AWAY Carpet & Tile cleaning (480) 577-7716 	
+       9/room pre treatment extra	                                  
+=>"623 251  7217  express carpet cleaning  $99_x000D_
+602 388 2801    jerry"    
+=>apex carpet cleaning  ;	602 791 1805   rich                                 
+                                 
+                                 
+                                 
+                                 
+                                 
 =====home cleaning==============================================================================
 
 pumice  stone  to clean toilet 
