@@ -57,7 +57,7 @@ Rey's Carpet cleaning  602 549 1247
 https://www.facebook.com/linda.orozcochavarria
 use a truck mounted machine and rx2o for deep cleaning, rx2o is a rotary extraction equipment with 5 jets and 5 suction hoses 
 
-=== old ones =======
+********* old ones **********************************************************************************
 =>carpet cleaning $15	602 400   7290	
 
 =>artillo	saw in rogers ranch
@@ -77,7 +77,8 @@ $25/room"		http://www.keycarpetcleaningtechnology.com/
 =>"623 251  7217  express carpet cleaning  $99_x000D_
 602 388 2801    jerry"    
 =>apex carpet cleaning  ;	602 791 1805   rich                                 
-                                 
+**************************************************************************************************
+
                                  
                                  
                                  
