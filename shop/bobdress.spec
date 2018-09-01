@@ -2,8 +2,10 @@
 
 
 ====Pants ========
+polyester58%    wool40%   spandex2%   Geoffrey Beene 
+
 macys
-perry ellis at  
+perry ellis 100%  polyester pants 
 
 
 JcPenney
