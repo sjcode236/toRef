@@ -83,6 +83,18 @@ $25/room"		http://www.keycarpetcleaningtechnology.com/
 6024342747                                 
 https://www.facebook.com/pedro.morales.547727
                                  
+==>Pristine Carpet + Upholstery Cleaning  
+  ONLY $18 A ROOM (3 room min.)!!!! That includes a preconditioning treatment, a professional steam clean and deodorizer!
+ https://www.facebook.com/profile.php?id=100006603407207
+  https://www.facebook.com/PristineCarpetandUpholstery
+ CALL OR TEXT US TODAY! 480-372-6638
+ 
+==>Magic Carpet Cleaning   $25    Phoenix, AZ
+English - Tanya Melendrez  📞📩 (623) 703-8960
+Español - Delgar Melendrez  📞📩 (602) 710-3421 
+https://www.facebook.com/tanya.melendrez       
+                                 
+                                 
                                  
                                  
                                  
