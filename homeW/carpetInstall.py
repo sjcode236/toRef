@@ -87,10 +87,22 @@ Direct Carpet On Floor and Home
 Robert Miller  https://www.facebook.com/profile.php?id=100001070927474
 480-646-2957
 623-748-1526
-
 https://www.carpeturn.com
  
  
+==>Stefan Brule  6024429190
+7150 W Roosevelt St Phx Az 85043
+.94/SF Direct Glue LVP (Shaw Name Brand)
+1.98/SF Click With Padding (Shaw Name Brand)
+Tiles, Carpet, Laminate, Vinyl Plank, Carpet Tiles, Wood Plank, Wood, You Name IT!
+ https://www.facebook.com/stefan.brule
+  
+  
+  
+  
+  
+  
+  
  ==============================================
  Garage  doors
  Sharon Bruntz  https://www.facebook.com/sharon.bruntz
