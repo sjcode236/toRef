@@ -10,24 +10,27 @@ Carpet& tile  cleaning Jason , will give package price for 500  sqft , degrease 
 
 chemtech floor cleaning (tile & carpet )
 623 312 9405 
+602 327 4705
 5rooms  $100  for carepet  and Tile $25-50  per area
 
 Carpet steam clean 10/room 
 Chris Cisneros   602 547 7664
 https://www.facebook.com/CISNEROS2420
-  
 
+===>Raul Serpa    
 tile and carpet cleaning  602 647 3222 
 https://www.facebook.com/raul.serpa
-20cent/sqft  tile ,  
-3 rooms 45  carpet
-9668 n 82nd ln  , cleaned 
+20cent/sqft  tile ,  3 rooms 45  carpet
+\9668 n 82nd ln  , cleaned 
 
-Carpet cleaning $15
-Samuel Sierra 
-https://www.facebook.com/samuel.sierra.7547
-  480 738 9180 y 480 939 9156 
-51 ave &   indian schoo rd 
+==>Samuel Sierra     ==Carpet cleaning $15                          
+https://www.facebook.com/samuel.sierra.7547 
+
+ 480 738 9180 y 480 939 9156 
+51 ave &   indian schoo rd   
+                               
+480 738 9180 y 480 939 9156 
+Carpet cleaning $15   
 
 https://www.facebook.com/candice.murray.3133
   her son & husb doing carpet & tile   480 331 5234 
@@ -94,10 +97,7 @@ English - Tanya Melendrez  📞📩 (623) 703-8960
 Español - Delgar Melendrez  📞📩 (602) 710-3421 
 https://www.facebook.com/tanya.melendrez       
                                  
-==>Samuel Sierra                               
-https://www.facebook.com/samuel.sierra.7547                                
-480 738 9180 y 480 939 9156 
-Carpet cleaning $15                                 
+                              
                                  
                                  
                                  
