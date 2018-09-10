@@ -43,24 +43,28 @@ Ingredients
 Sodium Tetraborate Pentahydrate: 100%    (borates )
 
 =====================================================================     
- Sta-Rite System 3  parts    
-Air bleed filter  25021-0004     
-air bleed tube   25021-0003   
-http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003   
-  
+STA-RITE SYSTEM 3 MODULAR MEDIA Filters ; Model# S8M150 
+   
+Air bleed filter  25021-0004       
+air bleed tube   25021-0003       
+http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003         
 == ORing  35505-1428  (2-1/4  inch length)      
           35504-1429  (2-1/4  inch width)   
          
 == Sta-Rite swimquip  lights       
-    
-https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/    
-ClearChoice Replacement for Sta-Rite S7M120 System 3 Pool Filter Inner & Outer Modular Media Cartridge Set
-   
- Sta-Rite System 3 Modular Cartridge Filter Parts    
- https://www.poolpartsonline.com/p-318-sta-rite-system-3-modular-cartridge-filter-parts.aspx
- 
-          
+     
+==> cartridges     
+    191 SQ.FT. :25021-0202S    
+    259 SQ.FT. :25022-0203S    
+https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/        
+ClearChoice Replacement for Sta-Rite S7M120 System 3 Pool Filter Inner & Outer Modular Media Cartridge Set    
 
+http://www.poolcenter.com/p/-system-3-s7m120-s8m150       
+ Sta-Rite System 3 Modular Cartridge Filter Parts    
+ https://www.poolpartsonline.com/p-318-sta-rite-system-3-modular-cartridge-filter-parts.aspx    
+     
+          
+    
 ====================================================================
 Hayward W560 Pool Cleaner Standard Leaf Canister     
 O-ring 6"   
