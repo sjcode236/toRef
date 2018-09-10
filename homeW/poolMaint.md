@@ -56,7 +56,7 @@ http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003
 https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/    
 ClearChoice Replacement for Sta-Rite S7M120 System 3 Pool Filter Inner & Outer Modular Media Cartridge Set
    
- Sta-Rite System 3 Ss Sand Filter Parts       
+ Sta-Rite System 3 Modular Cartridge Filter Parts    
  https://www.poolpartsonline.com/p-318-sta-rite-system-3-modular-cartridge-filter-parts.aspx
  
           
