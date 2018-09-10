@@ -70,9 +70,12 @@ Hayward W560 Pool Cleaner Standard Leaf Canister
 O-ring 6"   
 Hayward AXW542 O-Ring Replacement for Leaf Canisters Series W530 and W560      
 http://a.co/d/fNlQzcp    
+ https://www.amazon.com/gp/offer-listing/B004SPFGWA  
+
 ==>Pool Skimmer Socks    
  
-  ==============================================================================
+  
+==============================================================================
   Robotic cleaners     
   POLARIS 9300 SPORT     (sajan)    
   https://www.polarispool.com/en/product-archive/robotic/9300    
