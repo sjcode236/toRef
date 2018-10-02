@@ -8,6 +8,7 @@ Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്�
 http://lordcalls.com/prayers-to-saints/novena-to-saint-joseph   
 https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-old-prayer.html     
 
+https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
 https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
 http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1          
           
