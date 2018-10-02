@@ -10,8 +10,9 @@ https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-o
 
 http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1          
           
+വിശുദ്ധ യൗസേപ്പുപിതാവിന്‍റെ വണക്കമാസം             
+http://www.pravachakasabdam.com/index.php/site/news/897#              
           
-
 പരിശുദ്ധാത്മാവിനോടുള്ള പ്രാർത്ഥന    
 http://www.praarthana.org/2013/01/blog-post.html    
 https://malayalamnovena.wordpress.com/2014/03/04/prayer-to-the-holy-spirit/   
