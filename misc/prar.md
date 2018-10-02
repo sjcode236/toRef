@@ -44,9 +44,12 @@ Misc Prarthanakal
 വിശുദ്ധ യുദാശ്ലീഹായുടെ നൊവേന   https://malayalamnovena.wordpress.com/2014/03/03/st-jude/            
 സാധാരണ ത്രിസന്ധ്യാ ജപം https://malayalamnovena.wordpress.com/category/prayers/            
 Holy Rosary പരിശുദ്ധ ദൈവമാതാവിന്റെ ജപമാല https://nelsonmcbs.com/2013/07/14/holy-rosary-malayalam/             
-ജപമാല        http://valappy.blogspot.com/p/japamala.html                 
-Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nelsonmcbs.com/2013/07/14/daily-prayers-malayalam/
-
+ജപമാല        http://valappy.blogspot.com/p/japamala.html          
+ജപമാല    http://holydivine.com/Prayers/Malayalam/473                  
+Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nelsonmcbs.com/2013/07/14/daily-prayers-malayalam/        
+          
+                    
+          
 
 
 
