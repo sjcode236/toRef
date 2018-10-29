@@ -11,17 +11,17 @@ https://www.jcpenney.com/m/jcpenney-coupons/
 https://www.kohls.com/    
        
 
-
+==== Kids  girls  sites  ==============================================
 hoodies /  jackets  
 https://oldnavy.gap.com/   
 https://www.target.com/s/navy+blue+uniform+hoodie
 https://www.frenchtoast.com    uniform hoodie     
  
 
-==== Kids  girls  sites  ==============================================
 
 
-loose loral pants        
+
+loose floral pants        
 macys    
 guess.com      
 
