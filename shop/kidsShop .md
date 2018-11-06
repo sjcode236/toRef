@@ -4,7 +4,9 @@ https://github.com/sjcode236/toRef/blob/master/shop/ToCheckShops.md
 https://www.childrensplace.com     
      Fleece Hoodie & Jacket     
  https://www.frenchtoast.com/category/girls+uniforms/girls+school+uniforms+hoodies+%26+fleece.do      
-            
+     
+Girls Velour Hoodie  @ macys.com    
+Big Girls Hooded Cardigan  @macys.com   
             
             
      
