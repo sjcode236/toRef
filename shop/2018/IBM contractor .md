@@ -1,5 +1,20 @@
 
 
+===== AMD  Processor  core  details       
+https://www.windowscentral.com/amd-ryzen-which-processor-best-you       
+
+Ryzen 5
+Category	1400	1500X	1600	2600	1600X	2600X	2400G    
+ Cores	4	4	6	6	6	6	4   
+Threads	8	8	12	12	12	12	8   
+
+Ryzen 7   
+Category	1700	2700	1700X	2700X	1800X
+  Cores	8    8	 8	 8	8   
+Threads	16	16	16	16	16    
+    
+    
+
 
 
 From: George Thekkekara <thekkek@us.ibm.com>  
