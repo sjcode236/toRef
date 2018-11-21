@@ -87,9 +87,11 @@ http://a.co/d/fNlQzcp
  dolphin nautilus  different model compaparison     
   https://www.poolzoom.com/dolphin-nautilus-cc-plus-robotic-pool-cleaner.html?keword=&gclid=CjwKCAiAodTfBRBEEiwAa1hauhPnNnASwScKe6HutBHIwrDHJ4n3NXaFwK_lNiGfrIx0nqDH3GyFtBoCmuoQAvD_BwE     
      
-https://www.poolsupplyunlimited.com/MaytronicsDolphin99996113USNautilusPoolCleaner/163234p1?gclid=CjwKCAiAodTfBRBEEiwAa1haupZmmrx0PA5Hxup7-JolU3Nzi1jg6n0oBxkspo6J_im4pWR9JxumZBoCIBcQAvD_BwE   
-https://www.poolpartz.com/dolphin-nautilus-cc-refurbished?gclid=CjwKCAiAodTfBRBEEiwAa1haukGng6uNvRpwVULwbyjfYtbHfeMNITVGZAYukOS1rTG777uffpn_kBoCqwMQAvD_BwE      
-https://www.poolpartz.com/dolphin-nautilus-plus-refurbished?gclid=CjwKCAiAodTfBRBEEiwAa1hauj_K5eR0jwxONRIc8yl6rYrOQUcD7RWlAu46hrNFo9IsXTyZ53v4MxoCtn0QAvD_BwE     
+https://www.poolsupplyunlimited.com/maytronics-dolphin-99996113-us-nautilus-pool-cleaner/163234p1        
+https://www.poolsupplyunlimited.com/maytronics-dolphin-99996403-pc-nautilus-plus-pool-cleaner/151643p1     
+https://www.poolpartz.com/dolphin-nautilus-cc-refurbished           
+https://www.poolpartz.com/dolphin-nautilus-plus-refurbished         
+https://www.poolsupply4less.com/Dolphin-Nautilus-Plus-p/99996403-pc.htm    
 
 
 
