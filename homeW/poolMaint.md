@@ -84,7 +84,16 @@ http://a.co/d/fNlQzcp
   https://www.amazon.com/Dolphin-Nautilus-Robotic-Cleaner-Cartridges/dp/B00Q8M0NWE   
   https://maytronicsus.com/product/nautilus-cc-plus/    
   
-   Smartpool 9i    
+ dolphin nautilus  different model compaparison     
+  https://www.poolzoom.com/dolphin-nautilus-cc-plus-robotic-pool-cleaner.html?keword=&gclid=CjwKCAiAodTfBRBEEiwAa1hauhPnNnASwScKe6HutBHIwrDHJ4n3NXaFwK_lNiGfrIx0nqDH3GyFtBoCmuoQAvD_BwE     
+     
+https://www.poolsupplyunlimited.com/MaytronicsDolphin99996113USNautilusPoolCleaner/163234p1?gclid=CjwKCAiAodTfBRBEEiwAa1haupZmmrx0PA5Hxup7-JolU3Nzi1jg6n0oBxkspo6J_im4pWR9JxumZBoCIBcQAvD_BwE   
+https://www.poolpartz.com/dolphin-nautilus-cc-refurbished?gclid=CjwKCAiAodTfBRBEEiwAa1haukGng6uNvRpwVULwbyjfYtbHfeMNITVGZAYukOS1rTG777uffpn_kBoCqwMQAvD_BwE      
+https://www.poolpartz.com/dolphin-nautilus-plus-refurbished?gclid=CjwKCAiAodTfBRBEEiwAa1hauj_K5eR0jwxONRIc8yl6rYrOQUcD7RWlAu46hrNFo9IsXTyZ53v4MxoCtn0QAvD_BwE     
+
+
+
+   Smartpool 9i      
    http://www.smartpool.com/website/Products/tabid/89/ProdID/66/CatID/3/Default.aspx    
    Aquabot Turbo T2   
    https://www.aquabot.com/residential/turbo-t2-plus/    
