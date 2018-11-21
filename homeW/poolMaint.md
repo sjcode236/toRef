@@ -85,8 +85,8 @@ http://a.co/d/fNlQzcp
   https://maytronicsus.com/product/nautilus-cc-plus/    
   
  dolphin nautilus  different model compaparison     
-  https://www.poolzoom.com/dolphin-nautilus-cc-plus-robotic-pool-cleaner.html?keword=&gclid=CjwKCAiAodTfBRBEEiwAa1hauhPnNnASwScKe6HutBHIwrDHJ4n3NXaFwK_lNiGfrIx0nqDH3GyFtBoCmuoQAvD_BwE     
-     
+https://www.poolzoom.com/dolphin-nautilus-cc-plus-robotic-pool-cleaner.html       
+      
 https://www.poolsupplyunlimited.com/maytronics-dolphin-99996113-us-nautilus-pool-cleaner/163234p1        
 https://www.poolsupplyunlimited.com/maytronics-dolphin-99996403-pc-nautilus-plus-pool-cleaner/151643p1     
 https://www.poolpartz.com/dolphin-nautilus-cc-refurbished           
