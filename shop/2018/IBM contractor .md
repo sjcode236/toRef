@@ -15,6 +15,6 @@ Hi! I thought you might be interested in these special offers from IBM. Simply c
     
 http://www.ibm.com/shop/us/cpp/?CMP=icpe_dw&CT=cpp&CR=201208&CM=m   
   
-====IBM Certified Pre-owned Equipment Employee Purchase Program 
+====IBM Certified Pre-owned Equipment Employee Purchase Program   
 https://www-store.shop.ibm.com/shop/used/us-en/icpeusepp/login    
     
