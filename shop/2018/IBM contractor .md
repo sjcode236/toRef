@@ -32,4 +32,13 @@ http://www.ibm.com/shop/us/cpp/?CMP=icpe_dw&CT=cpp&CR=201208&CM=m
   
 ====IBM Certified Pre-owned Equipment Employee Purchase Program   
 https://www-store.shop.ibm.com/shop/used/us-en/icpeusepp/login    
+
+Comparison Charts for Intel® Core™ Desktop Processor Family   
+https://www.intel.com/content/www/us/en/support/articles/000005505/processors.html   
+   
+The quick explanation is that all Core i7 CPUs use Hyper-Threading, so an eight-core CPU can handle 16 streams, a four-core can handle eight streams, and a dual-core can handle four streams. Core i5 uses Hyper-Threading to make a dual-core CPU act like a four-core one, but if you have a Core i5 processor with four true cores, it won't have Hyper-Threading.   
+   
+   
+    
+
     
