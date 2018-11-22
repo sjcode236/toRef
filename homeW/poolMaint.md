@@ -78,7 +78,8 @@ http://a.co/d/fNlQzcp
 ==============================================================================
   Robotic cleaners     
   POLARIS 9300 SPORT     (sajan)    
-  https://www.polarispool.com/en/product-archive/robotic/9300    
+  https://www.polarispool.com/en/product-archive/robotic/9300      
+  https://www.polarispool.com/en/products/robotic/compare  (compare polaris reobotic cleaners )       
   
   dolphin nautilus cc plus robotic pool cleaner (rajesh)   
   https://www.amazon.com/Dolphin-Nautilus-Robotic-Cleaner-Cartridges/dp/B00Q8M0NWE   
