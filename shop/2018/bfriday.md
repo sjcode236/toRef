@@ -5,9 +5,10 @@ computer
 speaker         
 shelf from sams club        
 pool cleaner     
-2TB HDisk       
+2TB HDisk 
+freezer
 
-        
+   
         
         
 =======Phone Deals     
