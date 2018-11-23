@@ -7,6 +7,7 @@ shelf from sams club
 pool cleaner     
 2TB HDisk 
 freezer
+elliptical runner proform 
 
    
         
