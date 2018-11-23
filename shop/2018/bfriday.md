@@ -2,10 +2,10 @@
 ===To buy ======
 Tire        
 computer        
-speaker         
-shelf from sams club        
+speaker     bought walmart     
+shelf from sams club  > order online       
 pool cleaner     
-2TB HDisk 
+2TB HDisk   bought from new egg 
 freezer
 elliptical runner proform 
 
