@@ -6,8 +6,9 @@ speaker     bought walmart
 shelf from sams club  > order online       
 pool cleaner     
 2TB HDisk   bought from new egg 
-freezer
+freezer   bought from sams club , with chase credit card , need to add for warranty , bought warranty for 3 years  
 elliptical runner proform 
+faucet     bought from homedepot , need to get it by mail 
 
    
         
