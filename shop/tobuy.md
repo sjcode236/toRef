@@ -1,27 +1,24 @@
 quick notes to buy    
      
 ===To buy ======     
-Tire        
-computer        
-speaker     bought walmart          
-pool cleaner      
+Tire    walmart To cancel , Discount Tire         
+computer            
+pool cleaner  ,suareTrade warranty  amazon      
 freezer   bought from sams club , with chase credit card , need to add for warranty , bought warranty for 3 years    
 elliptical runner proform    
-   
-    
-    
-ankle stabilizer, amazon  , Order Number: 113-9905435-5536234    
-Med Spec 264015 ASO Ankle Stabilizer    
-    
-    
-    
+                           
+ankle stabilizer, amazon  , Order Number: 113-9905435-5536234      
+Med Spec 264015 ASO Ankle Stabilizer     
+     
+     
+ speaker     bought walmart        
 shelf from sams club  > order online   , got    
 2TB HDisk   WD bought from new egg  , got it    
-faucet     bought from homedepot , need to get it by mail , got it    
-    
-**Solar LED Wireless Waterproof Motion Sensor Outdoor Light**   
+faucet     bought from homedepot , need to get it by mail , got it     
+     
+**Solar LED Wireless Waterproof Motion Sensor Outdoor Light**    
 https://www.amazon.com/dp/B0798LDGTS?ref_=ams_ad_dp_ovrl   
-https://www.amazon.com/TECLAN-Wireless-Waterproof-Outdoor-Security/dp/B06XRR3528   
+https://www.amazon.com/TECLAN-Wireless-Waterproof-Outdoor-Security/dp/B06XRR3528    
 https://www.amazon.com/Tagital-Wireless-Waterproof-Outdoor-Activated/dp/B0765S5Z35  
 https://www.walmart.com/ip/Solar-LED-Lights-20-LED-Wireless-Waterproof-Motion-Sensor-Outdoor-Light-for-Patio-Deck-Yard-Garden-with-Motion-Activated-Auto-On-Off-4-Pack/992125460   
 
