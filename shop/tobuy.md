@@ -1,8 +1,23 @@
 quick notes to buy 
 
+===To buy ======
+Tire        
+computer        
+speaker     bought walmart         
+pool cleaner     
+freezer   bought from sams club , with chase credit card , need to add for warranty , bought warranty for 3 years  
+elliptical runner proform 
 
 
 
+ankle stabilizer, amazon  , Order Number: 113-9905435-5536234
+Med Spec 264015 ASO Ankle Stabilizer  
+
+
+
+shelf from sams club  > order online   , got 
+2TB HDisk   WD bought from new egg  , got it 
+faucet     bought from homedepot , need to get it by mail , got it 
 
 **Solar LED Wireless Waterproof Motion Sensor Outdoor Light**   
 https://www.amazon.com/dp/B0798LDGTS?ref_=ams_ad_dp_ovrl   
