@@ -17,7 +17,7 @@ Sold by Nationwide Surgical
 
 Med Spec ASO Ankle Stabilizer      
 https://www.amazon.com/Med-Spec-264014-Stabilizer-Medium/dp/B00TZTO0TO/ref=sr_1_1?m=AWN62WLZXX491&s=merchant-items&ie=UTF8&qid=1543704249&sr=1-1&th=1&psc=1     
-
+ sold by Flexibrace.     
     
 P-TEX Pro Lace-Up Ankle Brace With Stability Wraps          
 At  Dicks  sporting goods      
