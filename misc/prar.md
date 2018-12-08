@@ -48,8 +48,9 @@ https://nelsonmcbs.com/2015/11/08/%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7%
 http://www.pravachakasabdam.com/index.php/site/news/3289     
 http://www.athmaraksha.org/page-inner-detail/661/47/6?page=1          
                     
-             
-             
+ കരുണയുടെ ജപമാല                
+ http://www.athmaraksha.org/page-inner-detail/180/53/7?page=1     
+                    
              
 Misc Prarthanakal             
 എത്രയും ദയയുള്ള മാതാവേ https://malayalamnovena.wordpress.com/prayers-novenas/page/2/                  
