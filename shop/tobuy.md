@@ -1,16 +1,17 @@
 quick notes to buy    
      
 ===To buy ======     
-Tire    walmart To cancel , Discount Tire         
-computer            
-pool cleaner  ,suareTrade warranty  amazon      
-freezer   bought from sams club , with chase credit card , need to add for warranty , bought warranty for 3 years    
+Tire    walmart To cancel , Discount Tire  ; TO CANCEL        
+computer             
 elliptical runner proform    
                            
 ankle stabilizer, amazon  , Order Number: 113-9905435-5536234      
-Med Spec 264015 ASO Ankle Stabilizer     
+Med Spec 264015 ASO Ankle Stabilizer      gotit 
+ankle stabilizer, amazon    medium size  , Order Number: 113-0300020-2417055
+Med Spec 264014 ASO Ankle Stabilizer  medium 
      
-     
+freezer   bought from sams club , with chase credit card , need to add for warranty , bought warranty for 3 years         
+pool cleaner  ,suareTrade warranty  amazon  , GOT IT ,bought with amex card , warranty        
  speaker     bought walmart        
 shelf from sams club  > order online   , got    
 2TB HDisk   WD bought from new egg  , got it    
