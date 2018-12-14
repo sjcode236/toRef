@@ -46,8 +46,9 @@ https://nelsonmcbs.com/2015/11/08/%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7%
 “നിത്യപിതാവേ! അവിടുത്തെ പ്രിയപുത്രനും ഞങ്ങളുടെ  ഏകരക്ഷകനുമായ   ഈശോ മിശിഹായുടെ തിരുരക്തം ഇന്ന് ലോകമെമ്പാടും അർപ്പിക്കപ്പെടുന്ന ദിവ്യബാലികളോട് ചേർത്ത് ശുദ്ധികരണ സ്ഥലത്തിലെ എല്ലാ ആത്മാക്കൾക്ക് വേണ്ടിയും ലോകം മുഴുവനിലുമുള്ള   സകല  പാപികള്‍ക്കു  വേണ്ടിയും തിരുസഭയിലുള്ള എല്ലാ  പാപികള്‍ക്കു   വേണ്ടിയും  എന്‍റെ  കുടുംബത്തിലും തലമുറകളിലുമുള്ള സകല പാപികൾക്ക് വേണ്ടിയും ഞാൻ കാഴ്ച വയ്ക്കുന്നു.” 
           
 http://www.pravachakasabdam.com/index.php/site/news/3289     
-http://www.athmaraksha.org/page-inner-detail/661/47/6?page=1          
-                    
+http://www.athmaraksha.org/page-inner-detail/661/47/6?page=1            
+https://www.youtube.com/watch?v=TLNz4mU627o      
+
  കരുണയുടെ ജപമാല                
  http://www.athmaraksha.org/page-inner-detail/180/53/7?page=1     
                     
