@@ -1,10 +1,6 @@
 
 
+https://github.com/sjcode236/fin/tree/master/prop     
 
 
-phoeix wealth builders 
-devnde hamilton 
-480 372 5618
 
-http://phoenix-wealth-builders.com/about-us/
-Jusitn 
