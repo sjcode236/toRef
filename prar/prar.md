@@ -68,6 +68,12 @@ Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nels
                   
   കത്തോലിക്കാ പ്രാര്‍ത്ഥനകള്‍   http://carmelchurch.in/mc/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8%E0%B4%95%E0%B4%B3%E0%B5%8D%E2%80%8D        
 
+വി. അന്തോണീസിനോടുള്ള പ്രാര്‍ത്ഥന    
+http://www.pravachakasabdam.com/index.php/site/news/4053     
+http://christianprayerbook.blogspot.com/2012/08/st-antony-pray-for-us.html     
+http://holydivine.com/Prayers/Malayalam/491    
+
+
 
 
 
