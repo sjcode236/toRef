@@ -2,12 +2,12 @@
 
 
 പ്രാർത്ഥനകൾ   
-ത്രിസന്ധ്യാ ജപം   http://holydivine.com/Prayers/Malayalam/488
-http://valappy.blogspot.com/  
+ത്രിസന്ധ്യാ ജപം   http://holydivine.com/Prayers/Malayalam/488    
+http://valappy.blogspot.com/   
 
 Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന / നൊവേന , ഔസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന
-http://lordcalls.com/prayers-to-saints/novena-to-saint-joseph   
-https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-old-prayer.html     
+http://lordcalls.com/prayers-to-saints/novena-to-saint-joseph    
+https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-old-prayer.html      
 
 https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
 https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
