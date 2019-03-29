@@ -2,6 +2,7 @@
 
 
 പ്രാർത്ഥനകൾ   
+ത്രിസന്ധ്യാ ജപം   http://holydivine.com/Prayers/Malayalam/488
 http://valappy.blogspot.com/  
 
 Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന / നൊവേന , ഔസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന
@@ -56,6 +57,7 @@ https://www.youtube.com/watch?v=TLNz4mU627o
 Misc Prarthanakal             
 എത്രയും ദയയുള്ള മാതാവേ https://malayalamnovena.wordpress.com/prayers-novenas/page/2/    
 എത്രയും ദയയുള്ള മാതാവേ http://holydivine.com/Prayers/Malayalam/75     
+പരിശുദ്ധരാജ്ഞി     http://holydivine.com/Prayers/Malayalam/76
 വിശുദ്ധ യുദാശ്ലീഹായുടെ നൊവേന   https://malayalamnovena.wordpress.com/2014/03/03/st-jude/             
 സാധാരണ ത്രിസന്ധ്യാ ജപം https://malayalamnovena.wordpress.com/category/prayers/            
 Holy Rosary പരിശുദ്ധ ദൈവമാതാവിന്റെ ജപമാല https://nelsonmcbs.com/2013/07/14/holy-rosary-malayalam/             
