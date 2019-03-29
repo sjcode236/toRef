@@ -62,8 +62,8 @@ Holy Rosary പരിശുദ്ധ ദൈവമാതാവിന്റെ ജ
 ജപമാല    http://holydivine.com/Prayers/Malayalam/473                  
 Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nelsonmcbs.com/2013/07/14/daily-prayers-malayalam/        
           
-                    
-          
+                  
+  കത്തോലിക്കാ പ്രാര്‍ത്ഥനകള്‍   http://carmelchurch.in/mc/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8%E0%B4%95%E0%B4%B3%E0%B5%8D%E2%80%8D        
 
 
 
