@@ -77,6 +77,8 @@ http://christianprayerbook.blogspot.com/2012/08/st-antony-pray-for-us.html
 http://holydivine.com/Prayers/Malayalam/491    
 
 
+“ഞാനാണ് ജീവന്റെ അപ്പം. എന്റെ അടുത്തു വരുന്നവന് ഒരിക്കലും വിശക്കുകയില്ല; എന്നില്‍ വിശ്വസിക്കുന്നവന് ദാഹിക്കുകയുമില്ല” (യോഹന്നാന്‍ 6:35
+
 
 
 
