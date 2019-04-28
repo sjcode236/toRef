@@ -1,5 +1,9 @@
 
 
+Filter Brand    starite   
+Vacuum bought on   
+robitic cleaner bought on   
+==============================================================
 conditioner /  cyanuric acid /  Stabilizer  30 - 99 ppm    
 free  chlorine   1 - 4 ppm    
 ph   7.2  - 7.8   
