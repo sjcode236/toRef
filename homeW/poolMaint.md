@@ -103,7 +103,12 @@ https://www.poolsupply4less.com/Dolphin-Nautilus-Plus-p/99996403-pc.htm
    
    =====================================================================
    
-   **Chlorine-Free Sun Shock Pool Purifier**
-   fdsgsdfgsdfg
-   dgfsdfgfdsg
+   **Chlorine-Free Sun Shock Pool Purifier**    
+ Remington Solar Chlorine-Free Sun Shock Pool Ionizer    
+ https://www.costco.com/Chlorine-Free-Sun-Shock-Pool-Purifier.product.100228627.html    
+       
+      
+     
+          
+
    
