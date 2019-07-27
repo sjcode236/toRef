@@ -1,6 +1,12 @@
 
 
+=============================     
+pipe glue   
+Christy's Red Hot Blue Glue    
+Christy's Wet or Dry Solvent Cement   
+Christy's cleaner to clean 
 
+============================     
 
 
 starite 2HP pump   
