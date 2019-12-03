@@ -1,5 +1,7 @@
 ======Learn      
 https://github.com/sjcode236/Learn/tree/master/vagrant     
+https://github.com/sjcode236/Learn/tree/master/win    
+
 
 ====== Linux     
 https://github.com/sjcode236/linux     
