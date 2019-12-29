@@ -18,7 +18,7 @@ https://github.com/sjcode236/shop
 ======fin     
 https://github.com/sjcode236/fin     
 https://github.com/sjcode236/fin/blob/master/economyoutlook.md     
-
+https://github.com/sjcode236/kachP    
    
 
 ====== python / ML     
