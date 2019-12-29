@@ -46,6 +46,11 @@ https://github.com/sjcode236/tour/tree/master/flights
 ======  news   
 https://github.com/sjcode236/toRef/blob/master/News/newsLinks.md     
 
+======= misc   
+https://github.com/sjcode236/toRef       
+https://github.com/sjcode236/miscP     
+
+
 ======  malayalam type     
 https://www.google.com/intl/ml/inputtools/try/     
 https://translate.google.com/       
