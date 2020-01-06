@@ -1,5 +1,6 @@
 
 https://github.com/sjcode236/miscP/tree/master/pra    
+https://github.com/sjcode236/torefP/blob/master/pra      
 
 പ്രാർത്ഥനകൾ   
 ത്രിസന്ധ്യാ ജപം   http://holydivine.com/Prayers/Malayalam/488    
