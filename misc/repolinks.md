@@ -52,7 +52,8 @@ https://github.com/sjcode236/toRef/blob/master/News/newsLinks.md
 ======= misc   
 https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md      
 https://github.com/sjcode236/toRef       
-https://github.com/sjcode236/miscP     
+https://github.com/sjcode236/torefP   
+
 
 
 ======  malayalam type     
