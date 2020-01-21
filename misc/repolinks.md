@@ -11,7 +11,7 @@ https://github.com/sjcode236/toRef/blob/master/prar/prar.md
 ======Learn      
 https://github.com/sjcode236/Learn/tree/master/vagrant     
 https://github.com/sjcode236/Learn/tree/master/win    
-https://github.com/sjcode236/kidstudy
+https://github.com/sjcode236/kidstudy      
 https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md       
 
 
