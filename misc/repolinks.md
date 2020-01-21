@@ -12,7 +12,7 @@ https://github.com/sjcode236/toRef/blob/master/prar/prar.md
 https://github.com/sjcode236/Learn/tree/master/vagrant     
 https://github.com/sjcode236/Learn/tree/master/win    
 https://github.com/sjcode236/kidstudy
-
+https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md       
 
 
 ======shop     
@@ -50,7 +50,7 @@ https://github.com/sjcode236/tour/tree/master/flights
 https://github.com/sjcode236/toRef/blob/master/News/newsLinks.md     
 
 ======= misc   
-https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md      
+  
 https://github.com/sjcode236/toRef       
 https://github.com/sjcode236/torefP   
 
