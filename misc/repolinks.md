@@ -13,7 +13,7 @@ https://github.com/sjcode236/Learn/tree/master/vagrant
 https://github.com/sjcode236/Learn/tree/master/win    
 https://github.com/sjcode236/kidstudy      
 https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md       
-
+Apps-softwareList  https://github.com/sjcode236/Learn/blob/master/mob/phoneApps-Desktop.spec     
 
 ======shop     
 https://github.com/sjcode236/shop     
