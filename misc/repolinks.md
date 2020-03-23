@@ -12,7 +12,7 @@ https://github.com/sjcode236/toRef/blob/master/prar/prar.md
 https://github.com/sjcode236/Learn/tree/master/vagrant     
 WindowsTips https://github.com/sjcode236/Learn/tree/master/win    
 Kids  https://github.com/sjcode236/kidstudy      
-TextEdit in md  https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md       
+TextEdit .md  https://github.com/sjcode236/Learn/blob/master/TextEdit%20github.md       
 Apps-softwareList  https://github.com/sjcode236/Learn/blob/master/mob/phoneApps-Desktop.spec     
 
 ======shop     
