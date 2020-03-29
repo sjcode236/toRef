@@ -23,7 +23,7 @@ https://github.com/sjcode236/shopP/tree/master/auto
 https://github.com/sjcode236/fin     
 https://github.com/sjcode236/fin/blob/master/economyoutlook.md     
 https://github.com/sjcode236/kachP    
-   
+youTube https://github.com/sjcode236/fin/blob/master/follow/finResource2.md        
 
 ====== python / ML     
 https://github.com/sjcode236/pyth     
