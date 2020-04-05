@@ -23,7 +23,10 @@ https://github.com/sjcode236/shopP/tree/master/auto
 https://github.com/sjcode236/fin     
 https://github.com/sjcode236/fin/blob/master/economyoutlook.md     
 https://github.com/sjcode236/kachP    
-youTube https://github.com/sjcode236/fin/blob/master/follow/finResource2.md        
+youTubeChannels https://github.com/sjcode236/fin/blob/master/follow/finResource2.md    
+FB-youtubePikcs https://github.com/sjcode236/fin/tree/master/_stkPikcs    
+stoks https://github.com/sjcode236/fin/tree/master/_stoks     
+Learn https://github.com/sjcode236/fin/tree/master/Learn    
 
 ====== python / ML     
 https://github.com/sjcode236/pyth     
