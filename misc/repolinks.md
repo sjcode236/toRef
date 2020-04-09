@@ -17,7 +17,7 @@ Apps-softwareList  https://github.com/sjcode236/Learn/blob/master/mob/phoneApps-
 
 ======shop     
 https://github.com/sjcode236/shop     
-https://github.com/sjcode236/shopP/tree/master/auto     
+P https://github.com/sjcode236/shopP/tree/master/auto     
 
 ======fin     
 https://github.com/sjcode236/fin     
