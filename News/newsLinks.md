@@ -11,6 +11,7 @@ https://www.azcentral.com/local/
 
 
 ## Neutral 
+https://www.pbs.org/newshour/latest     
 https://www.reuters.com/news/us          
 https://www.bbc.com/news/world/us_and_canada         
 https://www.bloomberg.com/         
