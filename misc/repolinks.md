@@ -23,9 +23,6 @@ P https://github.com/sjcode236/shopP/tree/master/auto
 https://github.com/sjcode236/fin     
 https://github.com/sjcode236/fin/blob/master/economyoutlook.md     
 https://github.com/sjcode236/kachP    
-youTubeChannels https://github.com/sjcode236/fin/blob/master/follow/finResource2.md    
-FB-youtubePikcs https://github.com/sjcode236/fin/tree/master/_stkPikcs    
-stocks https://github.com/sjcode236/fin/tree/master/_stoks     
 Learn https://github.com/sjcode236/fin/tree/master/Learn     
 FinRepolinks  https://github.com/sjcode236/fin/blob/master/finRepolinks.md
 
