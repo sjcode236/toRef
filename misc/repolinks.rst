@@ -35,6 +35,10 @@ https://github.com/sjcode236/bigD-ML
 ====== puppet ansibile chef      
 https://github.com/sjcode236/puppet     
 
+
+===== Platform mgmt   
+https://github.com/sjcode236/platf
+
 ======= cloud     
 https://github.com/sjcode236/cloud     
 
