@@ -51,6 +51,13 @@ http://theweek.com/
 ## very liberal ( Unfair  interpretations of news)  
 https://www.huffingtonpost.com/     
 
+## az biz news     
+https://www.bizjournals.com/phoenix/news/      
+https://ktar.com/business/    
+https://azbigmedia.com/category/business/     
+
+
+
 
 
 
