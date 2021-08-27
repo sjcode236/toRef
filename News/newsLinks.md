@@ -55,6 +55,8 @@ https://www.huffingtonpost.com/
 https://www.bizjournals.com/phoenix/news/      
 https://ktar.com/business/    
 https://azbigmedia.com/category/business/     
+https://www.gpec.org/news/page/17/    
+
 
 
 
