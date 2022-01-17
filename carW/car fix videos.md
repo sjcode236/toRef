@@ -6,7 +6,7 @@
 https://www.youtube.com/watch?v=w1sMas3Zclo   
 
 
-- sort
+1. sort
   * next 2
     - miskl2 
       * cheruy
