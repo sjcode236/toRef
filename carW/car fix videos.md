@@ -7,7 +7,6 @@ https://www.youtube.com/watch?v=w1sMas3Zclo
 
 
 - sort
-adfasdfasf
  - next 2
  - misk
 - last man
