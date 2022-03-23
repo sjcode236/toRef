@@ -3,14 +3,14 @@
 Filter Brand    starite   
 Vacuum bought on   
 robitic cleaner bought on   
-=-=============================================================
+=-=============================================================  
 conditioner /  cyanuric acid /  Stabilizer  30 - 99 ppm    
 free  chlorine   1 - 4 ppm    
 ph   7.2  - 7.8   
 total alkalinity   80 - 120 ppm   
 phosphates   below  100ppm  
 muriatic acid  ->  to reduce ph   
-=-==============================================================  
+=-==============================================================   
 
 Borates / Boric Acid   30 - 50 ppm    
 ==LaMotte Borate test strips are the best ones I have come across.    
@@ -69,7 +69,7 @@ http://www.poolcenter.com/p/-system-3-s7m120-s8m150
      
           
     
-====================================================================
+====================================================================   
 Hayward W560 Pool Cleaner Standard Leaf Canister     
 O-ring 6"   
 Hayward AXW542 O-Ring Replacement for Leaf Canisters Series W530 and W560      
@@ -79,7 +79,7 @@ http://a.co/d/fNlQzcp
 ==>Pool Skimmer Socks    
  
   
-==============================================================================
+==============================================================================   
   Robotic cleaners     
   POLARIS 9300 SPORT     (sajan)    
   https://www.polarispool.com/en/product-archive/robotic/9300      
@@ -105,7 +105,7 @@ https://www.poolsupply4less.com/Dolphin-Nautilus-Plus-p/99996403-pc.htm
    Aquabot Turbo T2   
    https://www.aquabot.com/residential/turbo-t2-plus/    
    
-   =====================================================================
+   =====================================================================   
    
  ### Chlorine-Free Sun Shock Pool Purifier 
  Remington Solar Chlorine-Free Sun Shock Pool Ionizer    
