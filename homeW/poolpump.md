@@ -27,7 +27,7 @@ starite 2HP pump
 Sta-Rite P6RA6G-207L    Max-E-Pro Standard Efficiency Single Speed Up Rated Pool and Spa Pump, 2 HP   
 
 =========================================      
-=== Hayward SP32900VSP TriStar VS 900 Standalone Variable Speed Pool Pump  (my new one )    
+=== Hayward SP32900VSP TriStar VS 900 Standalone Variable Speed Pool Pump  (**my new one** )    
 Designed to replace most full-rate high performance pumps up to 1.5 full-rate or 2.0 max-rate HP    
 
 ===  Hayward TriStar VS 950   ; Model :SP32950VSP   
