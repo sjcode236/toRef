@@ -80,7 +80,7 @@ http://a.co/d/fNlQzcp
  
   
 ==============================================================================   
-  Robotic cleaners     
+  **Robotic cleaners**     
   POLARIS 9300 SPORT     (sajan)    
   https://www.polarispool.com/en/product-archive/robotic/9300      
   https://www.polarispool.com/en/products/robotic/compare  (compare polaris reobotic cleaners )       
