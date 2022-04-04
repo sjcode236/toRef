@@ -70,7 +70,7 @@ http://www.poolcenter.com/p/-system-3-s7m120-s8m150
           
     
 ====================================================================   
-Hayward W560 Pool Cleaner Standard Leaf Canister     
+Hayward W560 Pool Cleaner Standard **Leaf Canister**     
 O-ring 6"   
 Hayward AXW542 O-Ring Replacement for Leaf Canisters Series W530 and W560      
 http://a.co/d/fNlQzcp    
