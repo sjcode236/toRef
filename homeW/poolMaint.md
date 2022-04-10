@@ -58,13 +58,16 @@ http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003
 == Sta-Rite swimquip  lights       
 
 
-=-=***Pentair 24850-0009 25-Inch Cord O-Ring for Tank***  
+=-=***Pentair 24850-0009 25-Inch Cord O-Ring for Tank***===============================     
     model 24850-0009 Pentair ;  
     25inch O-Ring    
     https://www.amazon.com/Pentair-24850-0009-25-Inch-Replacement-Sta-Rite/dp/B00C7UD   
     Pentair Store: https://www.amazon.com/stores/page/AF89325A-998F-4599-A2C3-A667724F50CC  
+https://www.backyardpoolsuperstore.com/Puri-Tech-O-Ring-Kit-Replaces-Sta-RIte-24850-0009-Others-with-Single-Use-Lubricant_p_31239.html   
+O-Ring Replaces: Swimquip (24850-0009) S8M150 25" Filter Tank Ring System: 3 Modular Media Filter.  
+O-Ring Replaces: Sta-Rite (24850-0009) System 3 DE Filter Models S7D75/S8D110 and System 3 Sand Filter Models S7S50/S8S70.  
     
-==> cartridges     
+==> ***cartridges*** ===============================================================        
     191 SQ.FT. :25021-0202S    
     259 SQ.FT. :25022-0203S    
 https://www.discountfilters.com/pool-spa-filters/clearchoice-ccp620/p182940/        
