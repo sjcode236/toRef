@@ -47,7 +47,7 @@ Ingredients
 Sodium Tetraborate Pentahydrate: 100%    (borates )
 
 =====================================================================     
-STA-RITE SYSTEM 3 MODULAR MEDIA Filters ; Model# S8M150 
+STA-RITE SYSTEM 3 MODULAR MEDIA Filters 25 inch models ; Model# S8M150  
    
 Air bleed filter  25021-0004       
 air bleed tube   25021-0003       
@@ -56,7 +56,14 @@ http://www.poolcenter.com/p/pentair-sta-rite-tube-air-bleed-25021-0003
           35504-1429  (2-1/4  inch width)   
          
 == Sta-Rite swimquip  lights       
-     
+
+
+=-=***Pentair 24850-0009 25-Inch Cord O-Ring for Tank***  
+    model 24850-0009 Pentair ;  
+    25inch O-Ring    
+    https://www.amazon.com/Pentair-24850-0009-25-Inch-Replacement-Sta-Rite/dp/B00C7UD   
+    Pentair Store: https://www.amazon.com/stores/page/AF89325A-998F-4599-A2C3-A667724F50CC  
+    
 ==> cartridges     
     191 SQ.FT. :25021-0202S    
     259 SQ.FT. :25022-0203S    
