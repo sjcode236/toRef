@@ -16,11 +16,14 @@ https://filterway.com/shop/premier-ro-pure-plus-annual-filter-replacement-bundle
 
 ==Watts Premier 531109 Replacement Filter Kit   
 https://www.amazon.com/Watts-Premier-531109-Replacement-Filter/dp/B00ODEKPG8/ref=sr_1_5?m=A18SPOXTKWQ2VE&s=merchant-items&ie=UTF8&qid=1529719483&sr=1-5   
-Premier 531109 RO Pure Plus Annual Replacement Filter Kit    
+Premier 531109 RO Pure Plus Annual Replacement Filter Kit  5 pack   
 (2) - 5 Micron Sediment Filter - (WP105311) -   
 (2) - 5 Micron Carbon Pre-Filter - (WP105351) -   
 (1) - 1 Micron VOC (Volatile Organic Compound) Carbon Filter - (WP105381) -    
 
-==Watts Premier WP531160 RO Pure Plus Reverse Osmosis Water Filter Replacement Kit, Multi, 4 Pack
+==Watts Premier WP531160 RO Pure Plus Reverse Osmosis Water Filter Replacement Kit, Multi, 4 Pack   
 https://www.amazon.com/gp/product/B00JMALYC2/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1   
 membrane (  WP105331  ) , WP105311 , WP105351 , WP105381   
+==Watts Premier 531161 RO Pure Plus 6 Pack Filter Replacement Kit w/Membrane   
+https://www.amazon.com/gp/product/B00NIR9MT2/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1   
+WP105311 (2) , WP105351 (2) , WP105381 (1) , Wp105331 (1)   
