@@ -77,7 +77,7 @@ http://www.poolcenter.com/p/-system-3-s7m120-s8m150
  Sta-Rite System 3 Modular Cartridge Filter Parts    
  https://www.poolpartsonline.com/p-318-sta-rite-system-3-modular-cartridge-filter-parts.aspx    
      
-**Drain Plug**   
+**Drain Plug**==============   
 Drain Plug Part #24900-0503   
 Pentair 24900-0503 Drain Plug Replacement   for S8M150    
 O-Ring 2-3/8" ID Adapter To Tank PLM/PLD ; Part# 35505-1424      
