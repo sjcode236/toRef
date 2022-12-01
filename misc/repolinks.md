@@ -64,9 +64,11 @@ https://github.com/sjcode236/torefP
 
 =====misc Notes   
 https://github.com/sjcode236/yearP     
-
-====kids  
-kidstudy   
+jobP   
+karam   
+medical    
+====kids    
+kidstudy    
 
 
 ======  malayalam type     
