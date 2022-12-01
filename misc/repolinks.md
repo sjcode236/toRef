@@ -63,7 +63,10 @@ https://github.com/sjcode236/toRef
 https://github.com/sjcode236/torefP   
 
 =====misc Notes   
-https://github.com/sjcode236/yearP    
+https://github.com/sjcode236/yearP     
+
+====kids  
+kidstudy   
 
 
 ======  malayalam type     
