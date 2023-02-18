@@ -106,4 +106,8 @@ http://holydivine.com/Prayers/Malayalam/491
 COMMON PRAYERS     
 https://www.lifeday.in/category/prayers/basic-prayers/    
 
+📿 meditation 🙏   
+https://www.youtube.com/@meditate3337/videos      
+https://www.youtube.com/@sjpra3sjpra315/videos     
+
 
