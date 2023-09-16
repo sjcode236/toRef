@@ -1,6 +1,6 @@
 
 
-5338 W taro ln Home =+====================================================================    
+5338 W taro ln Home =+===============================================    
 ===Watts Premier RO Pure Plus Reverse Osmosis      
 Model:- RO-PURE PLUS    
 🔘 531417 - RO Pure Plus  Guid   
