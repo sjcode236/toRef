@@ -1,7 +1,12 @@
 
 
-
-===Watts Premier RO Pure Plus Reverse Osmosis    
+5338 W taro ln Home =+====================================================================    
+===Watts Premier RO Pure Plus Reverse Osmosis      
+Model:- RO-PURE PLUS    
+🔘 531417 - RO Pure Plus  Guid   
+https://www.premierh2o.com/pages/531417-ro-pure-plus-guide     
+🔘 Manual 
+https://cdn.shopify.com/s/files/1/0826/7845/files/WP199519_IOM-Premier-RO-PurePlus.pdf?v=1633359925    
 ==Watts Premier ORIGINAL (105331) RO PURE membrane   
 Premier H2O Storefront      
 https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A18SPOXTKWQ2VE&merchant=A18SPOXTKWQ2VE&redirect=true   
