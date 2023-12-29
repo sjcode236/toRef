@@ -110,4 +110,6 @@ https://www.lifeday.in/category/prayers/basic-prayers/
 https://www.youtube.com/@meditate3337/videos      
 https://www.youtube.com/@sjpra3sjpra315/videos     
 
+Syro malabar prayers     
+https://docs.google.com/document/d/1YukEKEoP-GFk4KQQexlbIuiUl2Z-W8GLUW46X6FKxSo/mobilebasic     
 
