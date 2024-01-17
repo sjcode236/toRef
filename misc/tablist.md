@@ -8,7 +8,8 @@ https://www.google.com/
 
 Thoughts on Market   
 https://www.podparadise.com/Podcast/1466686717    
-finRepo  https://github.com/sjcode236/fin/blob/master/finRepolinks.md    
+finRepo   
+https://github.com/sjcode236/fin/blob/master/finRepolinks.md    
 
 
 📗  Malayalam Type   
