@@ -23,4 +23,14 @@ https://malayalamfont.com/english-to-malayalam-alpha.php?key=granular
 https://olam.in/dictionary/english/malayalam/gift    
 
 https://translate.google.com/?sl=en&tl=ml&text=gift&op=translate    
-https://www.bing.com/translator?to=en     
+https://www.bing.com/translator?to=en   
+
+news   
+https://www.wsj.com/   
+https://www.barrons.com/   
+
+AI chat 
+https://bard.google.com/chat    
+
+
+
