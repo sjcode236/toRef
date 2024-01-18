@@ -29,7 +29,7 @@ news
 https://www.wsj.com/   
 https://www.barrons.com/   
 
-AI chat   
+AI chat  
 https://bard.google.com/chat    
 
 
