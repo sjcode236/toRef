@@ -32,7 +32,10 @@ https://github.com/sjcode236/fin/blob/master/finRepolinks.md
 https://www.barchart.com/    
 https://thefly.com/   
 
-
+etrade.com
+fidelity.com
+https://www.merrilledge.com/   
+https://www.schwab.com/client-home
 
 
 
