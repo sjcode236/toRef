@@ -1,4 +1,4 @@
-### list of  browser window tabs   
+### list of mobile browser window tabs   
 
 പ്രാർത്ഥന   
 https://github.com/sjcode236/toRef/blob/master/prar/prar.md     
