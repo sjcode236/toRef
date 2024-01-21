@@ -71,9 +71,7 @@ medical
 kidstudy    
 
 
-======  malayalam type     
-https://www.google.com/intl/ml/inputtools/try/     
-https://translate.google.com/       
+     
 
 
 
