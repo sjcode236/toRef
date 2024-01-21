@@ -10,8 +10,9 @@ https://www.google.com/
 Thoughts on Market   
 https://www.podparadise.com/Podcast/1466686717    
 
-📗  Malayalam Type   
-https://www.google.com/intl/ml/inputtools/try/    
+📗  Malayalam Type======    
+https://www.google.com/intl/ml/inputtools/try/     
+https://translate.google.com/    
 
 📗  Malayalam meaning    
 https://malayalamfont.com/english-to-malayalam-alpha.php?key=granular   
