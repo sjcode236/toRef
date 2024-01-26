@@ -32,6 +32,8 @@ finRepo
 https://github.com/sjcode236/fin/blob/master/finRepolinks.md     
 https://www.barchart.com/    
 https://thefly.com/   
+https://www.investing.com/   
+https://www.marketbeat.com/stocks/NYSE/VZ/dividend/   
 
 etrade.com
 fidelity.com
