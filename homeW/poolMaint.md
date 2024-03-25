@@ -114,6 +114,11 @@ https://www.poolsupply4less.com/Dolphin-Nautilus-Plus-p/99996403-pc.htm
 
 
 
+How to diagnose and repair a dolphin pool cleaner  https://www.youtube.com/watch?v=nRB2NWki49I&t=506s    
+Nautilus Plus Pool Cleaner by Dolphin - How to Fix & Repair  https://www.youtube.com/watch?v=9ArZbxh_AzA    
+How-to Tune-up or Repair your Maytronics Dolphin Nautilus Plus  https://www.youtube.com/watch?v=F7C6CYDCbmk&t=26s    
+
+
    Smartpool 9i      
    http://www.smartpool.com/website/Products/tabid/89/ProdID/66/CatID/3/Default.aspx    
    Aquabot Turbo T2   
