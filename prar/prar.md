@@ -13,7 +13,8 @@ https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-o
 https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
 https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
 http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1          
-          
+
+ ══════ ══════ ══════ ══════ ══════ ══════ ══════            
 വിശുദ്ധ യൗസേപ്പുപിതാവിന്‍റെ വണക്കമാസം             
 http://www.pravachakasabdam.com/index.php/site/news/897#    
           
@@ -23,7 +24,7 @@ You should pray this for 9 consecutive days. It's preferred to say for nine cons
              
 https://www.youtube.com/watch?v=vvYSlLEpnRc                    
 Say this Very Powerful Novena Prayer to St. Joseph for Nine (9) consecutive mornings                  
-             
+──────────────────────────────────────────────────────────────────────             
 പരിശുദ്ധാത്മാവിനോടുള്ള പ്രാർത്ഥന    
 http://www.praarthana.org/2013/01/blog-post.html    
  പരിശുദ്ധാത്മാവേ , എനിക്ക് എല്ലാം വെളിപ്പെടുത്തുകയും എനിക്ക് വഴി കാണിച്ചുതരികയും എന്നോട് മറ്റുള്ളവര്‍ ചെയ്യുന്നതെല്ലാം ക്ഷമിക്കുവാനും മറക്കാനും  കഴിവുതരുന്ന ദൈവീക ദാനം തരികയും എൻറെ ജീവിതത്തില്‍ എൻറെ എല്ലാ ചിന്തകളിലും ഉള്ളവനുമായ അങ്ങേക്ക് ഞാന്‍ നന്ദി പറയുന്നു. എത്ര വലിയ ഭൗതിക ആഗ്രഹങ്ങള്‍ എന്നിലുണ്ടായാലും ഒരു നിമിഷം പോലും അങ്ങയില്‍ നിന്ന് അകലുവാനോ, വേര്‍പ്പെടുവാനോ ഞാന്‍ ആഗ്രഹിക്കുന്നില്ല, എന്ന് ഞാന്‍ തീര്‍ത്തു പറയുന്നു. നിത്യമഹത്വത്തില്‍ അങ്ങയോടുകൂടെ ആയിരിക്കുവാന്‍ ഞാന്‍ ആഗ്രഹിക്കുന്നു. ദൈവഹിതത്തിനു വിധേയപ്പെട്ടുകൊണ്ട് ഞാന്‍ അങ്ങയോടു ചോദിക്കുന്നു (നിയോഗം സമര്‍പ്പിക്കുക)       
@@ -33,7 +34,7 @@ https://malayalamnovena.wordpress.com/2014/03/04/prayer-to-the-holy-spirit/
           
 http://carmelchurch.in/mcc/%E0%B4%AA%E0%B4%B0%E0%B4%BF%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7%E0%B4%BE%E0%B4%A4%E0%B5%8D%E0%B4%AE%E0%B4%BE%E0%B4%B5%E0%B4%BF%E0%B4%A8%E0%B5%8B%E0%B4%9F%E0%B5%81%E0%B4%B3%E0%B5%8D%E0%B4%B3_%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8   
           
-
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄
 ശുദ്ധീകരണ സ്ഥലത്തെ  ആത്മാക്കൾക്കുള്ള  പ്രാർത്ഥന   
 https://nelsonmcbs.com/2016/10/31/prayer-of-st-gertrude-2/    
 http://lordcalls.com/prayers-for-different-people/prayer-for-the-holy-souls     
@@ -51,6 +52,7 @@ http://www.pravachakasabdam.com/index.php/site/news/3289
 http://www.athmaraksha.org/page-inner-detail/661/47/6?page=1            
 https://www.youtube.com/watch?v=TLNz4mU627o      
 
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄
  കരുണയുടെ ജപമാല                
  http://www.athmaraksha.org/page-inner-detail/180/53/7?page=1     
                     
@@ -100,8 +102,11 @@ http://holydivine.com/Prayers/Malayalam/491
 
  ജപമാലയുടെ അവസാനം :കര്‍ത്താവായ ദൈവമേ  ഞങ്ങളെ രക്ഷിക്കണമേ.അങ്ങേ മക്കളോട് കരുണ കാണിക്കണമേ .ഞങ്ങളും ഞങ്ങളുടെ മാതാപിതാക്കളും സഹോദരങ്ങളും ബന്ധുക്കളും മിത്രങ്ങളും ശത്രുക്കളും പൂര്‍വ്വികരും വഴി വന്നു പോയ പാപങ്ങളും അപരാധങ്ങളും ക്ഷമിക്കണമേ .ഞങ്ങളെ ശിക്ഷിക്കരുതേ. ഞങ്ങളുടെ കടങ്ങള്‍ ഇളച്ചുതരണമേ. ഞങ്ങളെ അങ്ങയുടെ സ്വന്തമായി സ്വീകരിച്ച് അങ്ങേ അരൂപിയിലൂടെ നയിക്കണമേ .
   (3) പ്രാവശ്യം  
--=======================================     
-
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
+മാതാവിന്‍റെ ര­ക്ത­ക്ക­ണ്ണീരിന്‍ ജ­പമാ­ല    
+https://www.pravachakasabdam.com/index.php/site/news/3993     
+https://www.ourmercifulgod.com/2014/05/mathavinte-raktha-kanneerin-japamala.html     
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
  
 COMMON PRAYERS     
 https://www.lifeday.in/category/prayers/basic-prayers/    
@@ -112,4 +117,8 @@ https://www.youtube.com/@sjpra3sjpra315/videos
 
 Syro malabar prayers     
 https://docs.google.com/document/d/1YukEKEoP-GFk4KQQexlbIuiUl2Z-W8GLUW46X6FKxSo/mobilebasic     
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
+
+
+
 
