@@ -105,6 +105,7 @@ http://holydivine.com/Prayers/Malayalam/491
   (3) പ്രാവശ്യം  
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
 മാതാവിന്‍റെ ര­ക്ത­ക്ക­ണ്ണീരിന്‍ ജ­പമാ­ല    
+https://marianpathram.com/prayer/mathavinte-rakthakanneerjapamala/    
 https://www.pravachakasabdam.com/index.php/site/news/3993     
 https://www.ourmercifulgod.com/2014/05/mathavinte-raktha-kanneerin-japamala.html     
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
