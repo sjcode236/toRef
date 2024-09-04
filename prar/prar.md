@@ -35,7 +35,7 @@ https://malayalamnovena.wordpress.com/2014/03/04/prayer-to-the-holy-spirit/
           
 http://carmelchurch.in/mcc/%E0%B4%AA%E0%B4%B0%E0%B4%BF%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7%E0%B4%BE%E0%B4%A4%E0%B5%8D%E0%B4%AE%E0%B4%BE%E0%B4%B5%E0%B4%BF%E0%B4%A8%E0%B5%8B%E0%B4%9F%E0%B5%81%E0%B4%B3%E0%B5%8D%E0%B4%B3_%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8   
           
-▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 ശുദ്ധീകരണ സ്ഥലത്തെ  ആത്മാക്കൾക്കുള്ള  പ്രാർത്ഥന   
 https://nelsonmcbs.com/2016/10/31/prayer-of-st-gertrude-2/    
 http://lordcalls.com/prayers-for-different-people/prayer-for-the-holy-souls     
