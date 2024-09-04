@@ -15,7 +15,7 @@ https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg
 http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1          
 
  ══════════════════════════════════════════     
- ───────────────────────────────────────────────────     
+ ───────────────────────────────────────────────     
 വിശുദ്ധ യൗസേപ്പുപിതാവിന്‍റെ വണക്കമാസം             
 http://www.pravachakasabdam.com/index.php/site/news/897#    
           
