@@ -138,8 +138,10 @@ frdominic.marian@gmail.com
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄ Anugraha Retreat Centre,    
 Ph:8113061008(Only for enquiry & Retreat Booking )      
 811 306 1008 / 9562459251(Prayer Request)    
+anugrahaministries6@gmail.com    
 FR.MATHEW VAYALAMANNIL     
-Anugraha Retreat Centre, Vaduvanchal, Wayanad       
+Anugraha Retreat Centre, Vaduvanchal, Wayanad      
+https://www.youtube.com/watch?v=rsv8KlqY08A     
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
 കുരുക്കഴിക്കുന്ന  മാതാവിനോടുള്ള  പ്രാർത്ഥന        
