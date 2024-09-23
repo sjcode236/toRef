@@ -176,7 +176,7 @@ https://www.youtube.com/shorts/V0SpjjaV5Ao
 ആമ്മേൻ.        1)-- https://nelsonmcbs.com/2022/06/19/%E0%B4%95%E0%B5%81%E0%B4%B0%E0%B5%81%E0%B4%95%E0%B5%8D%E0%B4%95%E0%B4%B4%E0%B4%BF%E0%B4%95%E0%B5%8D%E0%B4%95%E0%B5%81%E0%B4%A8%E0%B5%8D%E0%B4%A8-%E0%B4%AE%E0%B4%BE%E0%B4%A4%E0%B4%BE%E0%B4%B5-5/         
 2)-- https://valappy.blogspot.com/2018/08/blog-post.html     
 https://www.youtube.com/watch?v=Y9W57yfOaHY   
-
+mario https://www.youtube.com/watch?v=f1cQZBitHOk    
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄          
 COMMON PRAYERS     
 https://www.lifeday.in/category/prayers/basic-prayers/    
