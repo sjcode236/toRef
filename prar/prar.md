@@ -177,9 +177,13 @@ https://www.youtube.com/shorts/V0SpjjaV5Ao
 2)-- https://valappy.blogspot.com/2018/08/blog-post.html     
 https://www.youtube.com/watch?v=Y9W57yfOaHY   
 mario https://www.youtube.com/watch?v=f1cQZBitHOk    
+
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
+Online Covenant Prayer - Kreupasanam Marian Shrine     
+
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄          
 COMMON PRAYERS     
-https://www.lifeday.in/category/prayers/basic-prayers/    
+https://www.lifeday.in/category/prayers/basic-prayers/     
 
 📿 meditation 🙏   
 https://www.youtube.com/@meditate3337/videos      
