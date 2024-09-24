@@ -196,6 +196,11 @@ https://www.youtube.com/watch?v=8cgu9n6AwKo
 https://www.youtube.com/watch?v=dBdLPyKRZ6w  കൃപാസനം ഓൺലൈൻ മരിയൻ ഉടമ്പടി എങ്ങനെ എടുക്കാം??     
 https://www.youtube.com/watch?v=WmvOKicrGMU   ഏതു പ്രയാസത്തിലിരിക്കുന്നവർക്കും ഈ പ്രാർത്ഥന മതിയാവും       
 
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
+നിയോഗ ജപമാല     
+https://www.youtube.com/watch?v=TKHfUBrglqs     
+
+
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄          
 COMMON PRAYERS     
 https://www.lifeday.in/category/prayers/basic-prayers/     
