@@ -197,7 +197,8 @@ https://marianvibes.com/prayer-to-mother-carmela/
 മധുരമുള്ള അമ്മേ ഈ കാര്യം ഞാൻ അങ്ങേ തൃക്കരങ്ങളിൽ സമർപ്പിക്കുന്നു. ( 3പ്രാവശ്യം)    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
-Kreupasanam  Online Covenant  Prayer     
+Kreupasanam  Online Covenant  Prayer      
+kreupasanam light a candle prayer    
 https://www.youtube.com/watch?v=8cgu9n6AwKo      
 https://www.youtube.com/watch?v=dBdLPyKRZ6w  കൃപാസനം ഓൺലൈൻ മരിയൻ ഉടമ്പടി എങ്ങനെ എടുക്കാം??     
 https://www.youtube.com/watch?v=WmvOKicrGMU   ഏതു പ്രയാസത്തിലിരിക്കുന്നവർക്കും ഈ പ്രാർത്ഥന മതിയാവും       
