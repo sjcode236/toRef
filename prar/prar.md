@@ -190,7 +190,8 @@ https://marianvibes.com/prayer-to-mother-carmela/
 മധുരമുള്ള അമ്മേ ഈ കാര്യം ഞാൻ അങ്ങേ തൃക്കരങ്ങളിൽ സമർപ്പിക്കുന്നു. ( 3പ്രാവശ്യം)    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
-Online Covenant Prayer - Kreupasanam Marian Shrine     
+Kreupasanam  Online Covenant  Prayer     
+https://www.youtube.com/watch?v=8cgu9n6AwKo      
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄          
 COMMON PRAYERS     
