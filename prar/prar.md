@@ -143,7 +143,8 @@ FR.MATHEW VAYALAMANNIL
 Anugraha Retreat Centre, Vaduvanchal, Wayanad      
 https://www.youtube.com/watch?v=rsv8KlqY08A     
 
-https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  5.30 to 5.45 ;    
+https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  5.30 to 5.45 ;     
+2 karunakontha with rejani      
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
 കുരുക്കഴിക്കുന്ന  മാതാവിനോടുള്ള  പ്രാർത്ഥന        
 33 പ്രാവശ്യം 33 ദിവസം വെച്ച് ചൊല്ലുക     
