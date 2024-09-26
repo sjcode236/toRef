@@ -1,10 +1,6 @@
 
 https://kreupasanam.com/ml/lightCandlePrayer     
 
-
-
-
-
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 Kreupasanam Online Covenant Prayer      
 https://kreupasanam.com/en/covenantprayer    
