@@ -1,12 +1,18 @@
 
+https://kreupasanam.com/ml/lightCandlePrayer     
 
 
 
 
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
-Kreupasanam Online Covenant Prayer     
-kreupasanam light a candle prayer     
+Kreupasanam Online Covenant Prayer      
+https://kreupasanam.com/en/covenantprayer    
+https://kreupasanam.com/ml/covenantprayer     
+kreupasanam light a candle prayer      
+https://kreupasanam.com/ml/lightCandlePrayer      
+https://kreupasanam.com/en/lightCandlePrayer    
+
 https://www.youtube.com/watch?v=8cgu9n6AwKo     
 https://www.youtube.com/watch?v=dBdLPyKRZ6w കൃപാസനം ഓൺലൈൻ മരിയൻ ഉടമ്പടി എങ്ങനെ എടുക്കാം??     
 https://www.youtube.com/watch?v=WmvOKicrGMU ഏതു പ്രയാസത്തിലിരിക്കുന്നവർക്കും ഈ പ്രാർത്ഥന മതിയാവും     
