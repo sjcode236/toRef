@@ -68,17 +68,17 @@ Misc Prarthanakal
 പരിശുദ്ധരാജ്ഞി     http://holydivine.com/Prayers/Malayalam/76    
 വിശുദ്ധ യുദാശ്ലീഹായുടെ നൊവേന   https://malayalamnovena.wordpress.com/2014/03/03/st-jude/             
 സാധാരണ ത്രിസന്ധ്യാ ജപം https://malayalamnovena.wordpress.com/category/prayers/            
-Holy Rosary പരിശുദ്ധ ദൈവമാതാവിന്റെ ജപമാല https://nelsonmcbs.com/2013/07/14/holy-rosary-malayalam/             
-ജപമാല        http://carmelchurch.in/mcc/%E0%B4%AA%E0%B4%B0%E0%B4%BF%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7_%E0%B4%9C%E0%B4%AA%E0%B4%AE%E0%B4%BE%E0%B4%B2   
-ജപമാല        http://valappy.blogspot.com/p/japamala.html          
-ജപമാല    http://holydivine.com/Prayers/Malayalam/473                  
-Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nelsonmcbs.com/2013/07/14/daily-prayers-malayalam/        
-      
+Holy Rosary പരിശുദ്ധ ദൈവമാതാവിന്റെ ജപമാല   https://nelsonmcbs.com/2019/10/22/holy-rosary-malayalam-japamala-kontha/       
+ജപമാല  http://carmelchurch.in/mcc/%E0%B4%AA%E0%B4%B0%E0%B4%BF%E0%B4%B6%E0%B5%81%E0%B4%A6%E0%B5%8D%E0%B4%A7_%E0%B4%9C%E0%B4%AA%E0%B4%AE%E0%B4%BE%E0%B4%B2   
+ജപമാല        http://valappy.blogspot.com/p/japamala.html    
+ജപമാല    http://holydivine.com/Prayers/Malayalam/473    
+Daily Prayers അനുദിന പ്രാർത്ഥനകൾ  https://nelsonmcbs.com/2013/07/14/daily-prayers-malayalam/   
+    
 മരിച്ച വിശ്വാസികളുടെ   
 https://stjosepharakkunnam.blogspot.com/2016/07/blog-post_18.html     
-http://jesus4uu.blogspot.com/2012/07/blog-post_4038.html
-                  
-  കത്തോലിക്കാ പ്രാര്‍ത്ഥനകള്‍   http://carmelchurch.in/mc/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8%E0%B4%95%E0%B4%B3%E0%B5%8D%E2%80%8D        
+http://jesus4uu.blogspot.com/2012/07/blog-post_4038.html    
+
+  കത്തോലിക്കാ പ്രാര്‍ത്ഥനകള്‍    http://carmelchurch.in/mc/%E0%B4%AA%E0%B5%8D%E0%B4%B0%E0%B4%BE%E0%B4%B0%E0%B5%8D%E2%80%8D%E0%B4%A4%E0%B5%8D%E0%B4%A5%E0%B4%A8%E0%B4%95%E0%B4%B3%E0%B5%8D%E2%80%8D        
 
 വി. അന്തോണീസിനോടുള്ള പ്രാര്‍ത്ഥന    
 http://www.pravachakasabdam.com/index.php/site/news/4053     
