@@ -1,5 +1,14 @@
 
-https://kreupasanam.com/ml/lightCandlePrayer     
+https://kreupasanam.com/ml/lightCandlePrayer        
+
+
+
+https://www.facebook.com/FrVPJosephKreupasanam      
+https://www.youtube.com/@KreupasanamMarianShrine/featured      
+കൃപാസനം പത്രം     
+https://kreupasanam.com/en/news-letter     
+
+ഉടമ്പടി ധ്യാനം    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 Kreupasanam Online Covenant Prayer      
