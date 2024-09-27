@@ -41,4 +41,13 @@ https://www.youtube.com/watch?v=gPfshYpCWBI Kreupasanam Udampadi Light a Candle 
 മത്തായി 25 35 36 തിരുവചനങ്ങൾ പ്രകാരം ഓരോ ആഴ്ചവട്ടവും കാരുണ്യ പ്രവർത്തികൾ യേശുനാമ മഹത്വത്തിനായി പ്രവർത്തിക്കുമെന്ന് തീരുമാനമെടുക്കുക.   
    
 
-submited 26sep2024  12pm     
+submitted 26sep2024  12pm      
+27sep2024 to December 27, 2024      
+
+
+
+
+
+
+
+
