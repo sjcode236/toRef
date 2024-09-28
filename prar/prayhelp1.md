@@ -37,3 +37,17 @@ frdominic.marian@gmail.com
 -= Jeremiah 31.16    
 16 : കര്‍ത്താവ് അരുളിച്ചെയ്യുന്നു: കരച്ചില്‍ നിര്‍ത്തി കണ്ണീര്‍ തുടയ്ക്കൂ. നിന്റെ യാതനകള്‍ക്കു പ്രതിഫലം ലഭിക്കും; ശത്രുക്കളുടെ ദേശത്തുനിന്ന് അവര്‍ തിരികെ വരും - കര്‍ത്താവ് അരുളിച്ചെയ്യുന്നു. നിന്റെ ഭാവി പ്രത്യാശാഭരിതമാണ്.    
 Please pray for Fr Dominic by reciting Full Rosary and seven Divine  Mercy     
+
+
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄ Anugraha Retreat Centre,    
+Ph:8113061008(Only for enquiry & Retreat Booking )      
+811 306 1008 / 9562459251(Prayer Request)    
+anugrahaministries6@gmail.com    
+FR.MATHEW VAYALAMANNIL     
+Anugraha Retreat Centre, Vaduvanchal, Wayanad      
+https://www.youtube.com/watch?v=rsv8KlqY08A     
+
+https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  5.30 to 5.45 ;     
+2 karunakontha with rejani      
+
+
