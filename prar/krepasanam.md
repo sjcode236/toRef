@@ -8,7 +8,21 @@ https://www.youtube.com/@KreupasanamMarianShrine/featured
 കൃപാസനം പത്രം     
 https://kreupasanam.com/en/news-letter     
 
-ഉടമ്പടി ധ്യാനം    
+ഉടമ്പടി ധ്യാനം     
+
+കൃപാസനം ഒന്നാം ചൊവ്വ  (03- 09- 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=sQETepXMm18       
+കൃപാസനം രണ്ടാം ചൊവ്വ (10 - 09 - 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=kJpacpv6jw0      
+കൃപാസനം മൂന്നാം ചൊവ്വ (17 - 09 - 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=MDAAj7CoRC8    
+കൃപാസനം നാലാം ചൊവ്വ (24- 09 - 2024)   https://www.youtube.com/watch?v=zSEKvOQn24c     
+
+കൃപാസനം ഒന്നാം ചൊവ്വ (06 - 08-2024) മരിയൻ ഉടമ്പടി  https://www.youtube.com/watch?v=8KNo0GiDUhc    
+കൃപാസനം രണ്ടാം ചൊവ്വ (13- 08-2024) മരിയൻ  https://www.youtube.com/watch?v=5iLHlrhSncI    
+കൃപാസനം മൂന്നാം ചൊവ്വ (20- 08-2024) മരിയൻ  https://www.youtube.com/watch?v=IWtuFJp_Q9I    
+കൃപാസനം നാലാം ചൊവ്വ (27- 08-2024) മരിയൻ ഉടമ്പടി ധ്യാനം  https://www.youtube.com/watch?v=OL5MUbyUZcY     
+
+
+
+
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 Kreupasanam Online Covenant Prayer      
