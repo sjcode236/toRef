@@ -5,6 +5,7 @@ kurukkazhikkunna prayer
 karuna kontha  
 st michaels  prayer  ; started on 29sep2024   
 kettazhikkunna prayer   
+daily blessing ; niyoga prarthana
 
 
 evening   
