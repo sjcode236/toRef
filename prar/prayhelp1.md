@@ -1,6 +1,6 @@
 
 morning ;   
-krepasanam   
+krepasanam   5.30
 kurukkazhikkunna prayer   
 karuna kontha  
 st michaels  prayer  ; started on 29sep2024   
@@ -11,6 +11,7 @@ daily blessing ; niyoga prarthana
 evening   
 bible   
 krepasanam prayer   
+full rosary 
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  suggestion from fr dominic , Marian Retreat Centre         
 frdominic.marian@gmail.com            
@@ -75,7 +76,7 @@ Maria shaju  91-949-504-1299  (divine dhyana kendram )
 36 : ഇങ്ങനെ എഴുതപ്പെട്ടിരിക്കുന്നു: നിന്നെപ്രതി ഞങ്ങള്‍ ദിവസം മുഴുവന്‍ വധിക്കപ്പെടുന്നു;കൊലയ്ക്കുള്ള ആടുകളെപ്പോലെ കരുതപ്പെടുകയും ചെയ്യുന്നു.    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄       
-Ponnamma  91-944-682-1723      
+Ponnamma  91-944-682-1723  ; kottayam        
 
 
 
