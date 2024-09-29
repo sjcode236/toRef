@@ -3,7 +3,7 @@ morning ;
 krepasanam   5.30
 kurukkazhikkunna prayer   
 karuna kontha  
-st michaels  prayer  ; started on 29sep2024   
+st michaels  prayer 13time ; started on 29sep2024   
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana
 
@@ -65,7 +65,7 @@ https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄        
 Maria shaju  91-949-504-1299  (divine dhyana kendram )      
 
-13 മിഖായേൽ മാലാഖയോടുള്ള പ്രാര്‍ത്ഥന for 21 days     
+13times മിഖായേൽ മാലാഖയോടുള്ള പ്രാര്‍ത്ഥന for 21 days     
 
 കെട്ടുകൾ അഴിക്കുന്ന പ്രാർത്ഥന
 40 സ്വർഗസ്ഥ , 9 വിശ്വാസപ്രമാണം , 12 എത്രയും ദയയുള്ള  for 21 days 
