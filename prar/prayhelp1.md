@@ -3,7 +3,7 @@ morning ;
 krepasanam   
 kurukkazhikkunna prayer   
 karuna kontha  
-st michaels  prayer  
+st michaels  prayer  ; started on 29sep2024   
 kettazhikkunna prayer   
 
 
