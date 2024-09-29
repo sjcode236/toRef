@@ -1,6 +1,15 @@
 
+morning ;   
+krepasanam   
+kurukkazhikkunna prayer   
+karuna kontha  
+st michaels  prayer  
+kettazhikkunna prayer   
 
 
+evening   
+bible   
+krepasanam prayer   
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  suggestion from fr dominic , Marian Retreat Centre         
 frdominic.marian@gmail.com            
