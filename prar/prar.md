@@ -12,8 +12,6 @@ http://valappy.blogspot.com/
 വചനങ്ങൾ    
 https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md      
 ─────────────────────────────────────────────────     
-═════════════════════════════════════════════         
-
    
 ═════════════════════════════════════════════       
 https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
