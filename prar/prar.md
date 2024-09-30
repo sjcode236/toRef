@@ -6,14 +6,6 @@ https://github.com/sjcode236/torefP/blob/master/pra
 ത്രിസന്ധ്യാ ജപം   http://holydivine.com/Prayers/Malayalam/488    
 http://valappy.blogspot.com/   
 
-Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന / നൊവേന , ഔസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന
-http://lordcalls.com/prayers-to-saints/novena-to-saint-joseph    
-https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-old-prayer.html      
-
-https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
-https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
-http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1         
-
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 ═══════════════════════════════════════════════     
 ─────────────────────────────────────────────────      
@@ -22,6 +14,17 @@ https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md
 
 ─────────────────────────────────────────────────    
 
+   
+
+https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
+https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
+http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1         
+
+
+═════════════════════════════════════════════       
+Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന / നൊവേന , ഔസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന
+http://lordcalls.com/prayers-to-saints/novena-to-saint-joseph    
+https://mercy-heals.blogspot.com/2015/03/novena-prayer-to-st-joseph-2000-years-old-prayer.html   
 ═════════════════════════════════════════════      
 വിശുദ്ധ യൗസേപ്പുപിതാവിന്‍റെ വണക്കമാസം             
 http://www.pravachakasabdam.com/index.php/site/news/897#    
