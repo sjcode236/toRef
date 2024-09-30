@@ -18,10 +18,11 @@ http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1
 ═══════════════════════════════════════════════     
 ─────────────────────────────────────────────────      
 വചനങ്ങൾ    
-https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md     
+https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md      
 
-═════════════════════════════════════════════   
 ─────────────────────────────────────────────────    
+
+═════════════════════════════════════════════      
 വിശുദ്ധ യൗസേപ്പുപിതാവിന്‍റെ വണക്കമാസം             
 http://www.pravachakasabdam.com/index.php/site/news/897#    
           
