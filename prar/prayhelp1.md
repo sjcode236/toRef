@@ -1,9 +1,11 @@
 
 morning ;   
-krepasanam   5.30
+krepasanam   5.30 ;  
 kurukkazhikkunna prayer   
-karuna kontha  
-st michaels  prayer 13time ; started on 29sep2024   
+karuna kontha   
+st michaels  prayer 13time ; started on 28sep2024   
+holyspirit prayer   started on 28sep2024    
+ousep pithavinulla prayer   started on 28sep2024     
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana
 
