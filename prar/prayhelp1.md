@@ -6,11 +6,13 @@ kurukkazhikkunna prayer
 st michaels  prayer 13time ; started on 28sep2024   
 karuna kontha   
 
+infant Jesus prayer   
 holyspirit prayer   started on 28sep2024    
 ousep pithavinulla prayer   started on 28sep2024    
 karmmala mathavinulla prayer   
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana
+
 
 
 evening   
