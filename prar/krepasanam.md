@@ -10,6 +10,9 @@ https://kreupasanam.com/en/news-letter
 
 ഉടമ്പടി ധ്യാനം     
 
+
+കൃപാസനം ഒന്നാം ചൊവ്വ (01 10 2024) മരിയൻ ഉടമ്പടി ധ്യാനം  https://www.youtube.com/watch?v=wE-Z2RO64yo&t=3142s      
+
 കൃപാസനം ഒന്നാം ചൊവ്വ  (03- 09- 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=sQETepXMm18       
 കൃപാസനം രണ്ടാം ചൊവ്വ (10 - 09 - 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=kJpacpv6jw0      
 കൃപാസനം മൂന്നാം ചൊവ്വ (17 - 09 - 2024) മരിയൻ ഉടമ്പടി ധ്യാനം   https://www.youtube.com/watch?v=MDAAj7CoRC8    
