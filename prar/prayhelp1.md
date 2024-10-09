@@ -87,6 +87,11 @@ https://www.youtube.com/watch?v=X2bD2_R-uDg
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄       
 Ponnamma  91-944-682-1723  ; kottayam        
 
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
+https://charisbhavan.com/about-us/     
+Prayer Requests    
+Send your prayer request directly on Whatsapp:  +91 8547186103    
+Fr Kurian Karickal   +91 9747466599      
 
 
 
