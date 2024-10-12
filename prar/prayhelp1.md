@@ -2,6 +2,7 @@
 morning ;   
 bible   
 krepasanam   5.30 ;  
+പരിശുദ്ധാത്മാവേ ഒരു കൊടുങ്കാറ്റായി   https://www.youtube.com/watch?v=RrogMUnxWSA     
 kurukkazhikkunna prayer   
 st michaels  prayer 13time ; started on 28sep2024   
 karuna kontha   
@@ -12,7 +13,7 @@ ousep pithavinulla prayer   started on 28sep2024
 karmmala mathavinulla prayer   
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana    
-പരിശുദ്ധാത്മാവേ ഒരു കൊടുങ്കാറ്റായി   https://www.youtube.com/watch?v=RrogMUnxWSA     
+
 
 
 
