@@ -15,7 +15,7 @@ https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md
    
 ═════════════════════════════════════════════       
 https://vachanam4u.blogspot.com/2012/07/prayer-to-joseph.html       
-https://nelsonmcbs.files.wordpress.com/2013/07/daily-prayers-005.jpg            
+https://nelsonmcbs.com/category/prayers/    
 http://www.athmaraksha.org/page-inner-detail/196/56/7?page=1         
 
 Novena to Saint Joseph  യൗസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന / നൊവേന , ഔസേപ്പിതാവിനോടുള്ള  പ്രാർത്ഥന
