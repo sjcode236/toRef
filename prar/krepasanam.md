@@ -26,8 +26,9 @@ https://kreupasanam.com/en/news-letter
 കൃപാസനം നാലാം ചൊവ്വ (27- 08-2024) മരിയൻ ഉടമ്പടി ധ്യാനം  https://www.youtube.com/watch?v=OL5MUbyUZcY     
 
 
-
-
+കൃപാസനം അനുദിന അനുഗ്രഹ പ്രാർത്ഥന  https://www.youtube.com/watch?v=NnULrRLycOk   
+മരിയൻ ഉടമ്പടി സായാഹ്ന പ്രാർത്ഥന   https://www.youtube.com/watch?v=DqjdmQSfPnU    
+പ്രത്യക്ഷീകരണമദ്ധ്യസ്ഥപ്രാർത്ഥന   https://www.youtube.com/watch?v=1Dfqj_MW4ok    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
 Kreupasanam Online Covenant Prayer      
