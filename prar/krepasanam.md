@@ -53,7 +53,14 @@ https://www.youtube.com/watch?v=gPfshYpCWBI Kreupasanam Udampadi Light a Candle 
 
 3 )എൻ്റെ  ജോലി  പോയി . അനുയോജ്യമായ  ജോലി കിട്ടാൻ പ്രാർത്ഥന സഹായം വേണം    
 
-
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
+For prayer requests and questions: 9447285400, 8138045198    
+If you wish to support the ministry and retreat services of Kreupasanam Use below account details     
+Account Details :    
+              M/s. KREUPASANAM   
+              A/C No : 20850100021413
+              Federal Bank, Kalavoor Branch    
+              IFSC : FDRL0002085 MICR : 688049006    
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
 ലൈറ്റ് എ ക്യാന്‍ണ്ടില്‍ പ്രാർത്ഥന   
 നിങ്ങൾ എടുക്കുന്ന പ്രാർത്ഥന അഭ്യർത്ഥനയുടെ ഭാഗമായി, കൃപാസനം യൂട്യൂബ് ചാനലിൽ ഓൺലൈനായി 6 മരിയൻ ഉടമ്പടി റിട്രീറ്റിൽ പ്രാർത്ഥനാപൂർവ്വം പങ്കെടുത്ത് മരിയൻ ഉടമ്പടി ധ്യാനവും , സാക്ഷ്യങ്ങളും ഷെയർ ചെയ്യെണ്ടതാണ്.    
