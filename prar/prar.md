@@ -212,6 +212,11 @@ https://marianvibes.com/prayer-to-mother-carmela/
 കർത്താവിൻറെ കരുണ വേഗം ഞങ്ങളുടെ മേൽ ഉണ്ടാകുന്നതിനായി, ഞങ്ങളുടെ യാചനകൾ അത്യുന്നതൻറെ മുൻപിൽ സമർപ്പിക്കണമേ. ദുഷ്ടജന്തുവും പഴയ സർപ്പവുമായ സാത്താനെയും അവൻറെ കൂട്ടുകാരെയും പിടിച്ചുകെട്ടി പാതാളത്തിൽ തള്ളി താഴ്ത്തണമേ. അവൻ ഒരിക്കലും ഞങ്ങളെ വഴി തെറ്റിക്കാതിരിക്കട്ടെ. ആമ്മേൻ    
 
 
+St. Michael the Archangel, defend us in battle, be our protection against the wickedness and snares of the devil. May God rebuke him we humbly pray; and do thou, O Prince of the Heavenly host, by the power of God, cast into hell Satan and all the evil spirits who prowl about the world seeking the ruin of souls.
+Amen.
+
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
+Bless us, O Lord, and these thy gifts, which we are about to receive, from thy bounty, through Christ, Our Lord. Amen.    
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  Kreupasanam in different page       
 Kreupasanam  Online Covenant  Prayer      
