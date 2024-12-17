@@ -218,6 +218,9 @@ Amen.
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
 Bless us, O Lord, and these thy gifts, which we are about to receive, from thy bounty, through Christ, Our Lord. Amen.    
 
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄      
+Dear Lord, use my eyes to see new friends.Open my ears to hear my teacher.Open my mind to learn new things. Let my heart rememeber YOU are near when I'm afraid. Help me to love others like you do. I want to shine your light so bright in my school . Amen.
+
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  Kreupasanam in different page       
 Kreupasanam  Online Covenant  Prayer      
 kreupasanam light a candle prayer     
