@@ -7,7 +7,7 @@ https://github.com/sjcode236/torefP/blob/master/pra
 http://valappy.blogspot.com/   
 
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄     
-═══════════════════════════════════════════════     
+═══════════════════════════════════════════════      
 ─────────────────────────────────────────────────      
 വചനങ്ങൾ    
 https://github.com/sjcode236/toRef/blob/master/prar/vachanangal.md      
