@@ -72,6 +72,9 @@ https://www.youtube.com/watch?v=rsv8KlqY08A
 https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  5.30 to 5.45 ;     
 2 karunakontha with rejani      
 
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄          
+Sajan Brother +91 702-529-6186    
+sisy  referal   
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄        
 Maria shaju  91-949-504-1299  (divine dhyana kendram )      
 
