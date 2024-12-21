@@ -23,7 +23,7 @@ bible
 krepasanam prayer   
 full rosary 
 
-▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  suggestion from fr dominic , Marian Retreat Centre         
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄  suggestion from fr dominic valanmanal , Marian Retreat Centre         
 frdominic.marian@gmail.com            
 -=സങ്കീർത്തനം  107 ; 16:20 ;         
 16 : എന്തെന്നാല്‍, അവിടുന്നു പിച്ചളവാതിലുകള്‍ തകര്‍ക്കുന്നു; ഇരുമ്പോടാമ്പലുകളെ ഒടിക്കുന്നു;  
