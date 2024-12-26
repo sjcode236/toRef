@@ -70,6 +70,8 @@ FR.MATHEW VAYALAMANNIL
 Anugraha Retreat Centre, Vaduvanchal, Wayanad      
 https://www.youtube.com/watch?v=rsv8KlqY08A     
 
+https://www.facebook.com/groups/338781306858706/    FB page   
+
 https://www.youtube.com/watch?v=OIvy4JsvvMM&t=616s  Niyogaprarthana 1oct2024 ;  5.30 to 5.45 ;     
 2 karunakontha with rejani      
 
