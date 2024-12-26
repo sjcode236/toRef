@@ -14,7 +14,7 @@ karmmala mathavinulla prayer
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana     
 
-started Jerusalem Retreat prarthana  payer request on Jan4-2025     
+started Jerusalem Retreat prarthana  payer request on Jan4-2025    
 
 
 
