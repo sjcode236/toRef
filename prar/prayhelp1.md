@@ -98,7 +98,13 @@ https://charisbhavan.com/about-us/
 Prayer Requests    
 Send your prayer request directly on Whatsapp:  +91 8547186103    
 Fr Kurian Karickal   +91 9747466599      
+https://youtu.be/8ACCZayjnYg?si=9uBrGXY2lMSijaLL  (Kari Achan )    
+https://www.youtube.com/live/E-4nvXiCt3U?si=O2T_RJDMWNNYD3m-    (charisbhavan channel )    
 
-
+▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
+https://www.jerusalemcentre.org/      
+Jerusalem Retreat Centre, Thalore By Pass Road, Thrissur, Kerala, India, 680306.    
+Tel: +91 9656133533 (call or whatsapp)     
+Email : mailtojerusalem@gmail.com     
 
 
