@@ -14,7 +14,7 @@ karmmala mathavinulla prayer
 kettazhikkunna prayer   
 daily blessing ; niyoga prarthana     
 
-
+started anugraha prarthana  payer request on Jan4
 
 
 
