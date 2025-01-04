@@ -111,6 +111,9 @@ Tel: +91 9656133533 (call or whatsapp)
 Email : mailtojerusalem@gmail.com     
 For Telephonic Prayer Request, call between    
 10.00 AM to 4.00 PM (Indian Standard Time) on 9656133533    
+Family Prayer Line : 0091-8929700137 or 0091-1171366386  
+(acess code : 3321285# )   9.30 PM Every Day   
+Mariyan Sakiyam : 0091-9995206595 Call or WhatsApp     
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
 
 
