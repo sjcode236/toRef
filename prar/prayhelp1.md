@@ -116,7 +116,7 @@ Family Prayer Line : 0091-8929700137 or 0091-1171366386
 Mariyan Sakiyam : 0091-9995206595 Call or WhatsApp     
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
 fr-sebastian vechukarott    
-91 960-588-7708     
+91 960-588-7708  (watsapp)      
 
 Thomas Kottayam    
 91-944-736-6701   
