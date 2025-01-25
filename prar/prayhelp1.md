@@ -130,6 +130,7 @@ Pallikkunnu lourde matha
 https://www.youtube.com/watch?v=_8xReyfZU-0    
 REV. DR  ALOYSIUS KULANGARA OFFICIAL    
 91  9497432108  prayer request    
+Nercha:- mutel(knee) kuthi izhanju/nadannu pallikku chuttum 1 time nadannolam      
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
 ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄         
