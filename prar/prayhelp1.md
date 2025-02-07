@@ -6,6 +6,7 @@ krepasanam   5.30 ;
 kurukkazhikkunna prayer   
 st michaels  prayer 13time ; started on 28sep2024   
 karuna kontha   
+viswasapramanam 12times  12days ; started on Jan31    
 
 infant Jesus prayer   
 holyspirit prayer   started on 28sep2024    
