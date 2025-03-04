@@ -16,7 +16,7 @@ kettazhikkunna prayer
 daily blessing ; niyoga prarthana     
 
 submitted Jerusalem Retreat prarthana  payer request on 26dec-2024        
-submitted പ്രാർത്ഥന സഹായ request to dominic achan, marian on 26dec2024    
+submitted പ്രാർത്ഥന സഹായ request to dominic achan, marian on 26dec2024, 4mar2025       
 
 
 
