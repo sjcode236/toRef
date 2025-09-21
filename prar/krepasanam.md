@@ -66,19 +66,7 @@ https://www.youtube.com/watch?v=gPfshYpCWBI Kreupasanam Udampadi Light a Candle 
 35 : എന്തെന്നാല്‍ എനിക്കു വിശന്നു; നിങ്ങള്‍ ഭക്ഷിക്കാന്‍ തന്നു. എനിക്കു ദാഹിച്ചു; നിങ്ങള്‍ കുടിക്കാന്‍ തന്നു. ഞാന്‍ പരദേശിയായിരുന്നു; നിങ്ങള്‍ എന്നെ സ്വീകരിച്ചു.      
 36 : ഞാന്‍ നഗ്‌നനായിരുന്നു; നിങ്ങള്‍ എന്നെ ഉടുപ്പിച്ചു. ഞാന്‍ രോഗിയായിരുന്നു; നിങ്ങള്‍ എന്നെ സന്ദര്‍ശിച്ചു. ഞാന്‍ കാരാഗൃഹത്തിലായിരുന്നു; നിങ്ങള്‍ എന്റെ യടുത്തു വന്നു.        
 
-submitted 26sep2024  12pm   sojo10@gmail.com     
-27sep2024 to December 27, 2024      
 
-submitted 15jan2025  6.45am  sjbuy3@gmail.com    
-15jan2025 to  April 15, 2025      
-
-submitted 19may2025 9.32am  ;  jose5936k@gmail.com ; Myeesho34 ; 4802735245     
-soby jose243 ;20may1980    
-till  August 18, 2025     
-
-submitted  2sep2025 1:25pm ; jose59244k@gmail.com  ; Myeesho34  ; 
-soby joseph244 ; 20may1980   
-till   
 
 
 
